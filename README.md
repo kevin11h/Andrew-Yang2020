@@ -23,3 +23,8 @@ https://www.youtube.com/watch?v=7GSRzRBPOsQ
 # women
 
 https://qr.ae/TWsenz
+
+
+# text banking
+
+![](https://preview.redd.it/42ab1zjkdip31.jpg?width=640&crop=smart&auto=webp&s=16dad67aee628cab40fe7cbc66b87fd448576e98)
