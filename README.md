@@ -50,3 +50,12 @@ https://www.huffpost.com/entry/andrew-yang-kim-watkins-pay-equity_n_5d83ce34e4b0
 https://docs.google.com/document/d/1-nhEs6WoiB5H3ZK29M94YNL9X-aRujOajYC-f5Bb6VU/edit
 
 https://docs.google.com/presentation/d/1JJyPZAfkwI7Dh1WcfU-2tNKpgjEecPVUXVFYwJM0SKU/edit#slide=id.g5c3e408ecf_0_35
+
+# Faith Christianity
+https://t.co/PB3SJh5BS0
+
+https://breakermag.com/the-unshakeable-faith-of-jimmy-song/
+
+https://www.yang2020.com/blog/freedom-dividend-faith/
+
+https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
