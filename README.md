@@ -3,6 +3,9 @@
 # Ally
 Amen. Christ Jesus our Lord will protect us! http://web.archive.org/save/https://twitter.com/BriannaWu/status/1178744803317682177
 
+
+
+
 ## Music
 
 https://www.youtube.com/watch?v=K1jUJ-2MsdA
@@ -34,7 +37,7 @@ https://www.youtube.com/watch?v=WsgrAa6bU8Y
 
 # the new view https://www.youtube.com/watch?v=y6NdhXGXpp0
 
-
+fox vixens https://www.foxbusiness.com/economy/andrew-yang-ubi-empower-women-jobs
 
 ## Maternity Leave
 
