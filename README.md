@@ -26,6 +26,19 @@ https://www.youtube.com/watch?v=7GSRzRBPOsQ
 
 https://qr.ae/TWsenz
 
+https://twitter.com/andrewyang/status/1156751738323505154?lang=en
+
+https://www.youtube.com/watch?v=Q8cBr7PSavc
+
+https://www.youtube.com/watch?v=WsgrAa6bU8Y
+
+# the new view https://www.youtube.com/watch?v=y6NdhXGXpp0
+
+
+
+## Maternity Leave
+
+https://www.huffpost.com/entry/andrew-yang-kim-watkins-pay-equity_n_5d83ce34e4b070d468c96c9e
 
 # text banking
 
