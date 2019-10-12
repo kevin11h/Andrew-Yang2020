@@ -35,6 +35,8 @@ https://www.youtube.com/watch?v=Q8cBr7PSavc
 
 https://www.youtube.com/watch?v=WsgrAa6bU8Y
 
+![](https://external-preview.redd.it/Omcy62spKiTPAMrFZ0V1lGS9cFgT2oaxgHW3iMSF238.jpg?width=640&crop=smart&auto=webp&s=2e355239ad3deeca075e1de0bd72b50834a1c4db)
+
 # the new view https://www.youtube.com/watch?v=y6NdhXGXpp0
 
 fox vixens https://www.foxbusiness.com/economy/andrew-yang-ubi-empower-women-jobs
