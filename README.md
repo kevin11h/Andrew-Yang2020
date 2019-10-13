@@ -6,6 +6,9 @@ Amen. Christ Jesus our Lord will protect us! http://web.archive.org/save/https:/
 # Employment
 https://jobs.lever.co/yang2020
 
+# Interview Work
+https://nextshark.com/andrew-yang-united-states-president-interview/
+
 ## Music
 
 https://www.youtube.com/watch?v=K1jUJ-2MsdA
