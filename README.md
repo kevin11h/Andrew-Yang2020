@@ -70,3 +70,5 @@ https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 ## Revelation 21:4 King James Version (KJV)
 
 4 And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
+
+![](https://cdn.cnn.com/cnnnext/dam/assets/190810175239-andrew-yang-crying-8-10-2019-large-169.jpg)
