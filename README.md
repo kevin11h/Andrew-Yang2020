@@ -64,3 +64,9 @@ https://breakermag.com/the-unshakeable-faith-of-jimmy-song/
 https://www.yang2020.com/blog/freedom-dividend-faith/
 
 https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
+
+# Tears Joy and Sorrow
+
+## Revelation 21:4 King James Version (KJV)
+
+4 And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
