@@ -80,3 +80,7 @@ https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 4 And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
 
 ![](https://cdn.cnn.com/cnnnext/dam/assets/190810175239-andrew-yang-crying-8-10-2019-large-169.jpg)
+
+# Babes
+
+![](https://pbs.twimg.com/profile_banners/2964839109/1570933969/1500x500)
