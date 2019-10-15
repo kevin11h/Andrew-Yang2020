@@ -3,6 +3,13 @@
 # Ally
 Amen. Christ Jesus our Lord will protect us! http://web.archive.org/save/https://twitter.com/BriannaWu/status/1178744803317682177
 
+# women
+
+## https://www.womenforyang.com/
+
+## https://www.facebook.com/WomenforYang/
+
+
 # Employment
 https://jobs.lever.co/yang2020
 
@@ -28,7 +35,7 @@ https://www.youtube.com/watch?v=_P5P4_ISofI
 
 https://www.youtube.com/watch?v=7GSRzRBPOsQ
 
-# women
+
 
 https://qr.ae/TWsenz
 
