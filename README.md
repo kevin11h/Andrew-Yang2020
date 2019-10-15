@@ -9,6 +9,7 @@ Amen. Christ Jesus our Lord will protect us! http://web.archive.org/save/https:/
 
 ## https://www.facebook.com/WomenforYang/
 
+## https://twitter.com/LatinasforYang
 
 # Employment
 https://jobs.lever.co/yang2020
