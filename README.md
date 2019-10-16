@@ -3,6 +3,13 @@
 # Ally
 Amen. Christ Jesus our Lord will protect us! http://web.archive.org/save/https://twitter.com/BriannaWu/status/1178744803317682177
 
+# Activity
+## Atrium
+### Event
+
+https://www.atrium.co/resources/events/blockchain-founders-happy-hour/
+
+
 # women
 
 ## https://www.womenforyang.com/
