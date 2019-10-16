@@ -91,3 +91,7 @@ https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 # Babes
 
 ![](https://pbs.twimg.com/profile_banners/2964839109/1570933969/1500x500)
+
+# Debates
+
+https://www.youtube.com/watch?v=ct8xaMhnCXs
