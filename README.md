@@ -74,6 +74,8 @@ https://docs.google.com/presentation/d/1JJyPZAfkwI7Dh1WcfU-2tNKpgjEecPVUXVFYwJM0
 # Faith Christianity
 https://t.co/PB3SJh5BS0
 
+https://twitter.com/ecchen1
+
 https://breakermag.com/the-unshakeable-faith-of-jimmy-song/
 
 https://www.yang2020.com/blog/freedom-dividend-faith/
@@ -95,3 +97,8 @@ https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 # Debates
 
 https://www.youtube.com/watch?v=ct8xaMhnCXs
+
+
+# UBI Freedom Dividend Compilation
+https://www.yang2020.com/what-is-freedom-dividend-faq/
+
