@@ -90,7 +90,7 @@ https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 
 ![](https://cdn.cnn.com/cnnnext/dam/assets/190810175239-andrew-yang-crying-8-10-2019-large-169.jpg)
 
-
+## Isaiah 53:3
 The Suffering Servant
 …2He grew up before Him like a tender shoot, and like a root out of dry ground. He had no stately form or majesty to attract us, no beauty that we should desire Him. 3He was despised and rejected by men, a man of sorrows, acquainted with grief. Like one from whom men hide their faces, He was despised, and we esteemed Him not.
 
