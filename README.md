@@ -9,6 +9,8 @@ Amen. Christ Jesus our Lord will protect us! http://web.archive.org/save/https:/
 
 https://www.atrium.co/resources/events/blockchain-founders-happy-hour/
 
+# BBQ
+![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/russiangirl-kbbq.png?raw=true)
 
 # women
 
