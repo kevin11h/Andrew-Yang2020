@@ -11,7 +11,7 @@ https://www.atrium.co/resources/events/blockchain-founders-happy-hour/
 
 # BBQ
 ![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/russiangirl-kbbq.png?raw=true)
-
+![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/Screenshot_2019-08-10-15-49-48.png)
 # women
 
 ## https://www.womenforyang.com/
