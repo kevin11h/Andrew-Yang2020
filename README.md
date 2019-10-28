@@ -108,3 +108,20 @@ https://www.youtube.com/watch?v=ct8xaMhnCXs
 # UBI Freedom Dividend Compilation
 https://www.yang2020.com/what-is-freedom-dividend-faq/
 
+# Events
+　
+ 1. https://www.eventbrite.com/e/fresh-sunday-play-reading-series-unripe-by-alli-cruz-tickets-78243015967?aff=ebdssbdestsearch
+ 2. https://www.eventbrite.com/e/preparing-your-driven-teens-young-adults-for-success-with-well-being-tickets-5367853394?aff=ebdssbdestsearch
+ 3. https://www.eventbrite.com/e/cx-for-social-impact-registration-76490421911?aff=ebdssbdestsearch
+ 4. https://www.eventbrite.com/e/travel-rule-compliance-conference-and-hackathon-tickets-74517396539?aff=ebdssbdestsearch
+ 
+ 
+ 1. https://www.eventbrite.com/e/wine-tasting-panel-traditional-investors-views-tickets-76687615723?aff=ebdssbdestsearch
+ 2. https://www.eventbrite.com/e/blockchain-protocols-apps-adoption-tickets-69509644217?aff=ebdssbdestsearch
+ 3. https://www.eventbrite.com/e/the-role-of-privacy-in-defi-tickets-77333786437?aff=ebdssbdestsearch
+ 4. https://www.eventbrite.com/e/app-chains-vs-dapps-on-shards-cosmos-and-near-discuss-two-approaches-tickets-78074373553?aff=ebdssbdestsearch
+ 5. https://www.eventbrite.com/e/2019-us-china-blockchain-gaming-investment-summit-sf-tickets-76972945151?aff=ebdssbdestsearch
+ 6. 
+ 7.
+ 8.
+ 
