@@ -118,7 +118,7 @@ https://www.yang2020.com/what-is-freedom-dividend-faq/
  
  1. https://www.eventbrite.com/e/wine-tasting-panel-traditional-investors-views-tickets-76687615723?aff=ebdssbdestsearch
  2. https://www.eventbrite.com/e/blockchain-protocols-apps-adoption-tickets-69509644217?aff=ebdssbdestsearch
- 3. https://www.eventbrite.com/e/the-role-of-privacy-in-defi-tickets-77333786437?aff=ebdssbdestsearch
+ 3.  
  4. https://www.eventbrite.com/e/app-chains-vs-dapps-on-shards-cosmos-and-near-discuss-two-approaches-tickets-78074373553?aff=ebdssbdestsearch
  5. https://www.eventbrite.com/e/2019-us-china-blockchain-gaming-investment-summit-sf-tickets-76972945151?aff=ebdssbdestsearch
  6. 
