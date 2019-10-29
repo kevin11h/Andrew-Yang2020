@@ -37,30 +37,44 @@ Seven Sages of Societal & Civic Literacy
 T.O.C.  Topics
 
 1. 3 Principles & Pillars
+
 a. Freedom Dividend: UBI universal basic income
+
 b. Medicare for All
+
 c. Human-Centered Capitalism
 
 (160 Policies)
 
 1. Technology
+
 a.  Artificial Intelligence
+
 b.  cryptography / cryptocurrency
+
 c.  Quantum computing
+
 d.  Data policy personal data usage / rights
+
 e.  energy?
+
 f.  net neutrality (Tim Wu)
 
 2.  Ministry of Teaching + Healing
 a. education 
+
 b. healthcare
+
 c. Christianity religion
+
 d. Women's rights
 
 3.  Economy & Entrepeneurship (Entice Entrepreneurhips from Immigration H1B), (Energy & Technology?), Experience / xEndorsements?x
 a.  Time Banking
+
 b.  Taxes Taxing Tax Policy / Interest Rates (Value Added Tax VATs) 
 Capital Gain/Carried Interest Tax
+
 c.  Retirement Policy
 
 --------------------------------------------------------------------------------
