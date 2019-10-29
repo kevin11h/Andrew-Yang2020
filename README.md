@@ -26,6 +26,7 @@ Recommended Reading / Civic Literacy
 4. Lee Fang Machine
 5. Imagination
 6.  Tim Wu Information Empire 
+7.  Yellow Frank Wu
 
 T.O.C.  Topics
 
