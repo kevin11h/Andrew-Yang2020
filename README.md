@@ -20,13 +20,16 @@ Signature Party Chapter Release Party Signature Education Awareness bookstore Si
 
 
 Recommended Reading / Civic Literacy
+
+Seven Sages of Societal & Civic Literacy 
+
 1. Normal People
-2. Keeping Fiath With the constitution
-3. you have more power than you think
+2. Keeping Faith With the constitution
+3. you have more power than you think (Become America sponsorship advertisement outreach inquiry proposal)
 4. Lee Fang Machine
-5. Imagination
-6.  Tim Wu Information Empire 
-7.  Yellow Frank Wu
+5.  Tim Wu Information Empire 
+6.  Yellow Frank Wu
+7.  Sexual Politics Women/s Rights Sapphic Kate Millet
 
 T.O.C.  Topics
 
