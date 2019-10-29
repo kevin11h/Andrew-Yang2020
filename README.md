@@ -136,6 +136,8 @@ c.  Retirement Policy for Old people and seniors
 
 d.  Tax incentives Good Carbon taxes bonds
 
+e.  "Entrepreneur Endorsements" <- Atrium Justin Kan x Mitchell Energy Entrepreneur x Stephen energy PhD former Senior counsel, etc... Briana endorsement
+
 #### Ads vertise mentality
 
 Yang Gang Golden Girl Pinup Vintage Clothing Vintage Style 
