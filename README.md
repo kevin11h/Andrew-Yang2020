@@ -21,8 +21,14 @@ Location: Bluxome Street Winery, 53 Bluxome St. See map
 # bookmarks pamphlets flyers posters manifestos
 ## book mark foldable gifts
 ## BookMarks -> Meme
+### Epub
+### PDF
+### Kindle
+### Audio Andrew Anthem Yang2020 Music Compilation
 
 ## email free subscription
+
+## address physical business location for softbound and hardbound copy print books print version
 
 https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
@@ -52,7 +58,7 @@ Seven Sages of Societal & Civic Literacy
 4. Lee Fang Machine
 5.  Tim Wu Information Empire 
 6.  Yellow Frank Wu
-7.  Sexual Politics Women/s Rights Sapphic Kate Millet
+7.  Sexual Politics Women/s Rights Sapphic Wisdom Lesbian lovers Kate Millet
 
 T.O.C.  Topics
 
@@ -95,7 +101,22 @@ a.  Time Banking
 b.  Taxes Taxing Tax Policy / Interest Rates (Value Added Tax VATs) 
 Capital Gain/Carried Interest Tax
 
-c.  Retirement Policy
+c.  Retirement Policy for Old people and seniors
+
+
+# Ads vertise mentality
+
+Yang Gang Golden Girl Pinup Vintage Clothing Vintage Style
+
+https://camo.githubusercontent.com/eb9ca1471fdd6d7e965da474455b273fba6d8359/68747470733a2f2f65787465726e616c2d707265766965772e726564642e69742f4f6d6379363273704b695450414d72465a3056316c47533963466754326f617867485733694d53463233382e6a70673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d32653335353233396164336465656361303735653164653062643732623530383334613163346462
+
+
+Authorship Compiler Biography
+
+Andrew Yang & Friends
+
+Compiler Credit
+Kevin & Olive hug
 
 --------------------------------------------------------------------------------
 
@@ -154,7 +175,8 @@ https://www.youtube.com/watch?v=Q8cBr7PSavc
 
 https://www.youtube.com/watch?v=WsgrAa6bU8Y
 
-![](https://external-preview.redd.it/Omcy62spKiTPAMrFZ0V1lGS9cFgT2oaxgHW3iMSF238.jpg?width=640&crop=smart&auto=webp&s=2e355239ad3deeca075e1de0bd72b50834a1c4db)
+
+(https://external-preview.redd.it/Omcy62spKiTPAMrFZ0V1lGS9cFgT2oaxgHW3iMSF238.jpg?width=640&crop=smart&auto=webp&s=2e355239ad3deeca075e1de0bd72b50834a1c4db)
 
 # the new view https://www.youtube.com/watch?v=y6NdhXGXpp0
 
