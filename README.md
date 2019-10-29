@@ -1,5 +1,8 @@
 # Andrew-Yang2020
 
+
+https://www.copyblogger.com/ebook-in-30-day/
+
 1.  Ally Brianna Wu & Richard <-> Dan Lok @James
 
 --------------------------------------------------------------------------------
