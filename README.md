@@ -6,10 +6,17 @@ https://www.copyblogger.com/ebook-in-30-day/
 1.  Ally Brianna Wu & Richard <-> Dan Lok @James
 
 --------------------------------------------------------------------------------
+# bookmarks pamphlets flyers posters manifestos
+## book mark foldable gifts
+
+## email free subscription
+
 https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
-Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto 3 Virtues https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
-yang2020.com/policies
+Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto 3 Virtues 
+# https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
+
+# https://yang2020.com/policies
 https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=asian-man-white-female-politics
 
 
