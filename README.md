@@ -3,7 +3,10 @@
 
 https://www.copyblogger.com/ebook-in-30-day/
 
+https://github.com/kevin11h/How-To-Create-an-E-Book
 
+
+# Atrium Attorney Startup technology
 https://www.atrium.co/resources/events/november-founders-happy-hour
  
 Hi Founder,
@@ -14,11 +17,11 @@ Date: Thursday, November 14, 2019
 Time: 6:00 - 8:30PM
 Location: Bluxome Street Winery, 53 Bluxome St. See map
  
-
+# Ally
 1.  Ally Brianna Wu & Richard <-> Dan Lok @James
 
 --------------------------------------------------------------------------------
-# bookmarks pamphlets flyers posters manifestos
+## bookmarks pamphlets flyers posters manifestos
 ## book mark foldable gifts
 ## BookMarks -> Meme
 ### Epub
@@ -45,12 +48,14 @@ https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=asian-man-white-
 Learn + Work = Mind + Body = Virtuous Cycle Experience
 
 Event Distribution Chapter Release Party @EastWind books
+>>  As far as East is from the West so has He removed our transgressions from us  https://www.gotquestions.org/as-far-as-the-east-is-from-the-west.html
+
 Signature Party Chapter Release Party Signature Education Awareness bookstore Signature Gathering Covenant of Minds
+### Signature Book Chapter Release Party Gathering
 
+References & Recommended Reading / Civic Literacy
 
-Recommended Reading / Civic Literacy
-
-Seven Sages of Societal & Civic Literacy 
+Seven Sages of Societal Change & Civic Literacy 
 
 1. Normal People
 2. Keeping Faith With the constitution
@@ -60,7 +65,28 @@ Seven Sages of Societal & Civic Literacy
 6.  Yellow Frank Wu
 7.  Sexual Politics Women/s Rights Sapphic Wisdom Lesbian lovers Kate Millet
 
-T.O.C.  Topics
+
+1.  Cover
+2.  Copyrights & License information & Credits to copyeditors & coverdesigners & content contributors & (Co-)authors
+3.  Commited to "My lovers, our friends" <- Dedication
+4.  Contents Table ToC
+5.  Clever Quote
+6.  Foreword, Neither Left nor Right
+7.  Content
+...
+8.  Conclusion
+9.  Afterword
+10. Acknowledgements -> Action inspiring
+11. Advertisements
+12.  Chapter Notes (Bibliography)
+13. References & Recommended Reading
+14. Index
+15. Glossary - Glossia
+
+16.  Back Inner Cover
+17.  Back Cover Text
+
+T.O.C.  Topics Topical Analysis
 
 1. 3 Principles & Pillars
 
@@ -72,7 +98,7 @@ c. Human-Centered Capitalism
 
 (160 Policies <- 20%x ~ 33 / 30)
 
-1. Technology
+#### 3. Technology
 
 a.  Artificial Intelligence
 
@@ -86,7 +112,7 @@ e.  energy? <- Stephen & Mitchell
 
 f.  net neutrality (Tim Wu)
 
-2.  Ministry of Teaching + Healing
+#### 1.  Mission / Ministry of Teaching + Healing
 a. education 
 
 b. healthcare
@@ -95,7 +121,12 @@ c. Christianity religion
 
 d. Women's rights
 
-3.  Economy & Entrepeneurship (Entice Entrepreneurhips from Immigration H1B), (Energy & Technology?), Experience / xEndorsements?x
+2.  Energy & Environment & 
+a.  Climate Change (Environment) 
+b.
+c.  Energy Clean / Renewable 
+
+#### 4.  Economy & Entrepeneurship (Entice Entrepreneurhips from Immigration H1B), (Energy & Technology?), Experience / xEndorsements?x + Tax Policy + Retirement + Time Banking
 a.  Time Banking
 
 b.  Taxes Taxing Tax Policy / Interest Rates (Value Added Tax VATs) 
@@ -103,19 +134,25 @@ Capital Gain/Carried Interest Tax
 
 c.  Retirement Policy for Old people and seniors
 
+d.  Tax incentives Good Carbon taxes bonds
 
-# Ads vertise mentality
+#### Ads vertise mentality
 
-Yang Gang Golden Girl Pinup Vintage Clothing Vintage Style
+Yang Gang Golden Girl Pinup Vintage Clothing Vintage Style 
 
 https://camo.githubusercontent.com/eb9ca1471fdd6d7e965da474455b273fba6d8359/68747470733a2f2f65787465726e616c2d707265766965772e726564642e69742f4f6d6379363273704b695450414d72465a3056316c47533963466754326f617867485733694d53463233382e6a70673f77696474683d3634302663726f703d736d617274266175746f3d7765627026733d32653335353233396164336465656361303735653164653062643732623530383334613163346462
 
+##### Gear & Swag Bag Page
+clothing shirts & MATH Hats & Bag / Backpacks
 
-Authorship Compiler Biography
+#### Book Endorsement Sections
 
-Andrew Yang & Friends
 
-Compiler Credit
+#### Authorship Compiler BiblioBiography  Bio
+
+1. Andrew Yang & Friends
+
+2. Compiler Creative Credits & Goodwill
 Kevin & Olive hug
 
 --------------------------------------------------------------------------------
