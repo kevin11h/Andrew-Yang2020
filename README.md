@@ -2,12 +2,13 @@
 
 1.  Ally Brianna Wu & Richard <-> Dan Lok @James
 
+--------------------------------------------------------------------------------
 https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
 Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto 3 Virtues https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
+yang2020.com/policies
 https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=asian-man-white-female-politics
 
-yang2020.com/policies
 
 Atrium Justin Kan recommendation <-> Brianna Wu
 
@@ -15,7 +16,47 @@ Andrew Yang Music CDs compilation
 Learn + Work = Mind + Body = Virtuous Cycle Experience
 
 Event Distribution Chapter Release Party @EastWind books
+Signature Party Chapter Release Party Signature Education Awareness bookstore Signature Gathering Covenant of Minds
 
+
+Recommended Reading / Civic Literacy
+1. Normal People
+2. Keeping Fiath With the constitution
+3. you have more power than you think
+4. Lee Fang Machine
+5. Imagination
+6.  Tim Wu Information Empire 
+
+T.O.C.  Topics
+
+1. 3 Principles & Pillars
+a. Freedom Dividend: UBI universal basic income
+b. Medicare for All
+c. Human-Centered Capitalism
+
+(160 Policies)
+
+1. Technology
+a.  Artificial Intelligence
+b.  cryptography / cryptocurrency
+c.  Quantum computing
+d.  Data policy personal data usage / rights
+e.  energy?
+f.  net neutrality (Tim Wu)
+
+2.  Ministry of Teaching + Healing
+a. education 
+b. healthcare
+c. Christianity religion
+d. Women's rights
+
+3.  Economy & Entrepeneurship (Entice Entrepreneurhips from Immigration H1B), (Energy & Technology?), Experience / xEndorsements?x
+a.  Time Banking
+b.  Taxes Taxing Tax Policy / Interest Rates (Value Added Tax VATs) 
+Capital Gain/Carried Interest Tax
+c.  Retirement Policy
+
+--------------------------------------------------------------------------------
 
 # Ally
 Amen. Christ Jesus our Lord will protect us! http://web.archive.org/save/https://twitter.com/BriannaWu/status/1178744803317682177
