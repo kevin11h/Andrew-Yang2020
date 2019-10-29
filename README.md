@@ -1,5 +1,22 @@
 # Andrew-Yang2020
 
+1.  Ally Brianna Wu & Richard <-> Dan Lok @James
+
+https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
+
+Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto 3 Virtues https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
+https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=asian-man-white-female-politics
+
+yang2020.com/policies
+
+Atrium Justin Kan recommendation <-> Brianna Wu
+
+Andrew Yang Music CDs compilation
+Learn + Work = Mind + Body = Virtuous Cycle Experience
+
+Event Distribution Chapter Release Party @EastWind books
+
+
 # Ally
 Amen. Christ Jesus our Lord will protect us! http://web.archive.org/save/https://twitter.com/BriannaWu/status/1178744803317682177
 
