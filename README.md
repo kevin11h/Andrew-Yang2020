@@ -67,7 +67,7 @@ Seven Sages of Societal Change & Civic Literacy
 
 
 1.  Cover
-2.  Copyrights & License information & Credits to copyeditors & coverdesigners & content contributors & (Co-)authors & commentators
+2.  Copyrights & License information & Credits to copyeditors & coverdesigners & content contributors & (Co-)authors & commentators & cover designers creative credits Creative commons
 3.  Commited to "My lovers, our friends" <- Dedication
 4.  Contents Table ToC
 5.  Clever Quote
