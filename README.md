@@ -3,11 +3,24 @@
 
 https://www.copyblogger.com/ebook-in-30-day/
 
+
+https://www.atrium.co/resources/events/november-founders-happy-hour
+ 
+Hi Founder,
+
+What better way to kick off holiday celebrations than an evening of connecting with other founders? Join us for our monthly Founders Happy Hour to make those connections and share experiences before the year is up!
+
+Date: Thursday, November 14, 2019
+Time: 6:00 - 8:30PM
+Location: Bluxome Street Winery, 53 Bluxome St. See map
+ 
+
 1.  Ally Brianna Wu & Richard <-> Dan Lok @James
 
 --------------------------------------------------------------------------------
 # bookmarks pamphlets flyers posters manifestos
 ## book mark foldable gifts
+## BookMarks -> Meme
 
 ## email free subscription
 
@@ -20,9 +33,9 @@ Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto 3 Virtues
 https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=asian-man-white-female-politics
 
 
-Atrium Justin Kan recommendation <-> Brianna Wu
+# Atrium Justin Kan recommendation <-> Brianna Wu
 
-Andrew Yang Music CDs compilation
+# Andrew Yang Music CDs compilation
 Learn + Work = Mind + Body = Virtuous Cycle Experience
 
 Event Distribution Chapter Release Party @EastWind books
@@ -51,7 +64,7 @@ b. Medicare for All
 
 c. Human-Centered Capitalism
 
-(160 Policies)
+(160 Policies <- 20%x ~ 33 / 30)
 
 1. Technology
 
@@ -63,7 +76,7 @@ c.  Quantum computing
 
 d.  Data policy personal data usage / rights
 
-e.  energy?
+e.  energy? <- Stephen & Mitchell
 
 f.  net neutrality (Tim Wu)
 
@@ -210,4 +223,16 @@ https://www.yang2020.com/what-is-freedom-dividend-faq/
  6. 
  7.
  8.
+ 
+
+
+https://www.atrium.co/resources/events/november-founders-happy-hour
+ 
+Hi Founder,
+
+What better way to kick off holiday celebrations than an evening of connecting with other founders? Join us for our monthly Founders Happy Hour to make those connections and share experiences before the year is up!
+
+Date: Thursday, November 14, 2019
+Time: 6:00 - 8:30PM
+Location: Bluxome Street Winery, 53 Bluxome St. See map
  
