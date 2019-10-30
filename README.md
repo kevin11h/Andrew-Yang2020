@@ -74,7 +74,7 @@ Seven Sages of Societal Change & Civic Literacy
 
 # ToC Topical Analaysis Table of Contents
 
-1.  Cover
+1.  Cover:  Title & Subtitle - Principles & Pillars, Values, Visions and Virtues of a New American Society
 2.  Copyrights & License information & Credits to copyeditors & coverdesigners & content contributors & (Co-)authors & commentators & cover designers creative credits Creative commons, content editor, control number, contacts reachout to contact contributors email list, co-publishers, co-producers, co-heirs, co-inheritors, co-laborers list email list
 3.  Commited to "My lovers, our friends" <- Dedication
 4.  Contents Table ToC
@@ -100,10 +100,10 @@ Seven Sages of Societal Change & Civic Literacy
 
 # T.O.C.  Topics Topical Analysis
 
-0.  About Andrew Bio
+### 0  About Andrew Bio
 https://www.yang2020.com/meet-andrew/?_ga=2.239907395.1918837140.1572422344-2102962413.1572318224
 
-1. 3 Principles & Pillars
+### 1. 3 Principles & Pillars, Vision, Value and Virtue
 
 a. Freedom Dividend: UBI universal basic income
 
@@ -127,7 +127,7 @@ e.  energy? <- Stephen & Mitchell  <- industrial revolution transportation, comm
 
 f.  net neutrality (Tim Wu)
 
-#### 1.  Mission / Ministry of Teaching + Healing
+#### 2.  Mission / Ministry of Teaching + Healing
 a. education 
 
 b. healthcare
@@ -136,12 +136,18 @@ c. Christianity religion
 
 d. Women's rights
 
-2.  Energy & Environment & 
+### 6.  Energy & Environment & Climate Change
 a.  Climate Change (Environment) 
-b.
+b.  ??
 c.  Energy Clean / Renewable 
 
-#### 4.  Economy & Entrepeneurship (Entice Entrepreneurhips from Immigration H1B), (Energy & Technology?), Experience / xEndorsements?x + Tax Policy + Trade Deal Sustainability + Time Banking + Retirement  + Free Financial Education 
+
+### 5.  Utility & Transportation & Communication
+a.  
+b.
+c.  
+
+#### 4.  Economy + Entrepeneurship (Entice Entrepreneurhips from Immigration H1B Experience /) + xEndorsements?x + Tax Policy / Tax Rate Carried Interest Rates + Trade Deal Sustainability + Time Banking + Retirement + Free Financial Education 
 a.  Time Banking
 
 b.  Taxes Taxing Tax Policy / Interest Rates (Value Added Tax VATs) 
