@@ -319,3 +319,6 @@ https://yangprints.com/all
 https://yangprints.com/bcard/
 
 https://yangprints.com/tags/bucks/
+
+# blog
+https://www.yang2020.com/blog/
