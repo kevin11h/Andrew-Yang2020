@@ -28,8 +28,13 @@ Location: Bluxome Street Winery, 53 Bluxome St. See map
 ## BookMarks -> Meme
 ### Epub
 ### PDF
+## Mobi
 ### Kindle
+### Mp3
+### CDs
+### USBs
 ### Audio Andrew Anthem Yang2020 Music Compilation
+### QR codes
 
 ## email free subscription
 
