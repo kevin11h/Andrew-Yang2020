@@ -67,6 +67,7 @@ Seven Sages of Societal Change & Civic Literacy
 6.  Yellow Frank Wu
 7.  Sexual Politics Women/s Rights Sapphic Wisdom Lesbian lovers Kate Millet
 
+# ToC Topical Analaysis Table of Contents
 
 1.  Cover
 2.  Copyrights & License information & Credits to copyeditors & coverdesigners & content contributors & (Co-)authors & commentators & cover designers creative credits Creative commons, content editor, control number, contacts reachout to contact contributors list email list
