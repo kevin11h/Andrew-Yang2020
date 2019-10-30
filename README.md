@@ -70,7 +70,7 @@ Seven Sages of Societal Change & Civic Literacy
 # ToC Topical Analaysis Table of Contents
 
 1.  Cover
-2.  Copyrights & License information & Credits to copyeditors & coverdesigners & content contributors & (Co-)authors & commentators & cover designers creative credits Creative commons, content editor, control number, contacts reachout to contact contributors list email list
+2.  Copyrights & License information & Credits to copyeditors & coverdesigners & content contributors & (Co-)authors & commentators & cover designers creative credits Creative commons, content editor, control number, contacts reachout to contact contributors email list, co-publishers, co-producers, co-heirs, co-inheritors, co-laborers list email list
 3.  Commited to "My lovers, our friends" <- Dedication
 4.  Contents Table ToC
 5.  Clever Quote
@@ -81,10 +81,10 @@ Seven Sages of Societal Change & Civic Literacy
 9.  Afterword  ~ Call to Action 
 10. Acknowledgements -> Action Call inspiring
 11. Advertisements
-12.  Chapter Notes (Bibliography)
-13. References & Recommended Reading
-14. Index
-15. Glossary - Glossia
+12. ~Chapter Notes (Bibliography I)
+13. References & Recommended Reading (Bibliography II)
+14. Glossary - Glossia
+15. Index
 
 16.  Back Inner Cover
 17.  Back Cover Text
