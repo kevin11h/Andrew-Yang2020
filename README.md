@@ -76,9 +76,9 @@ Seven Sages of Societal Change & Civic Literacy
 6.  Foreword, Neither Left nor Right
 7.  Content
 ...
-8.  Conclusion
-9.  Afterword
-10. Acknowledgements -> Action inspiring
+8.  Conclusion ~ Call to Action
+9.  Afterword  ~ Call to Action 
+10. Acknowledgements -> Action Call inspiring
 11. Advertisements
 12.  Chapter Notes (Bibliography)
 13. References & Recommended Reading
@@ -88,7 +88,11 @@ Seven Sages of Societal Change & Civic Literacy
 16.  Back Inner Cover
 17.  Back Cover Text
 
-T.O.C.  Topics Topical Analysis
+## Action Call Items 2 Rules
+1.  Email & ZIP Code
+2.  Donate.
+
+# T.O.C.  Topics Topical Analysis
 
 1. 3 Principles & Pillars
 
