@@ -95,6 +95,9 @@ Seven Sages of Societal Change & Civic Literacy
 
 # T.O.C.  Topics Topical Analysis
 
+0.  About Andrew Bio
+https://www.yang2020.com/meet-andrew/?_ga=2.239907395.1918837140.1572422344-2102962413.1572318224
+
 1. 3 Principles & Pillars
 
 a. Freedom Dividend: UBI universal basic income
