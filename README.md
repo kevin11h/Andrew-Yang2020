@@ -6,6 +6,8 @@ https://www.copyblogger.com/ebook-in-30-day/
 https://github.com/kevin11h/How-To-Create-an-E-Book
 
 
+
+
 # Atrium Attorney Startup technology
 https://www.atrium.co/resources/events/november-founders-happy-hour
  
@@ -303,3 +305,7 @@ Location: Bluxome Street Winery, 53 Bluxome St. See map
 # What are You doing to help our Andrew Yang Gang win?
 
 https://yangprints.com/all
+
+https://yangprints.com/bcard/
+
+https://yangprints.com/tags/bucks/
