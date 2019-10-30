@@ -118,7 +118,7 @@ c.  Quantum computing
 
 d.  Data policy personal data usage / rights
 
-e.  energy? <- Stephen & Mitchell
+e.  energy? <- Stephen & Mitchell  <- industrial revolution transportation, communications and utility <-  sulfur, mercury , salt 
 
 f.  net neutrality (Tim Wu)
 
@@ -136,7 +136,7 @@ a.  Climate Change (Environment)
 b.
 c.  Energy Clean / Renewable 
 
-#### 4.  Economy & Entrepeneurship (Entice Entrepreneurhips from Immigration H1B), (Energy & Technology?), Experience / xEndorsements?x + Tax Policy + Retirement + Time Banking
+#### 4.  Economy & Entrepeneurship (Entice Entrepreneurhips from Immigration H1B), (Energy & Technology?), Experience / xEndorsements?x + Tax Policy + Trade Deal Sustainability + Time Banking + Retirement  + Free Financial Education 
 a.  Time Banking
 
 b.  Taxes Taxing Tax Policy / Interest Rates (Value Added Tax VATs) 
