@@ -1,5 +1,9 @@
 # Andrew-Yang2020
 
+
+![](https://pbs.twimg.com/media/D0NGHQXXcAA2Uu4.jpg)
+
+
 ## Attention Economy Tim Wu  Attention Distraction Health 
 https://www.copyblogger.com/ebook-in-30-day/
 
