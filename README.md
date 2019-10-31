@@ -1,5 +1,6 @@
 # Andrew-Yang2020
 
+https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
 
 ![](https://pbs.twimg.com/media/D0NGHQXXcAA2Uu4.jpg)
 
