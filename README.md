@@ -6,6 +6,11 @@ https://www.copyblogger.com/ebook-in-30-day/
 https://github.com/kevin11h/How-To-Create-an-E-Book
 
 
+1 John 3:17, NASB: "But whoever has the world's goods, and sees his brother in need and closes his heart against him, how does the love of God abide in him?" 1 John 3:17, NLT: "If someone has enough money to live well and sees a brother or sister in need but shows no compassion--how can God's love be in that person?"
+
+# Faith
+# https://www.yang2020.com/blog/freedom-dividend-faith/
+
 
 
 # Atrium Attorney Startup technology
