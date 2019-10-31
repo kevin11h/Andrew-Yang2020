@@ -1,6 +1,6 @@
 # Andrew-Yang2020
 
-
+## Attention Economy Tim Wu  Attention Distraction Health 
 https://www.copyblogger.com/ebook-in-30-day/
 
 https://github.com/kevin11h/How-To-Create-an-E-Book
@@ -119,6 +119,8 @@ c. Human-Centered Capitalism
 (160 Policies <- 20%x ~ 33 / 30)
 
 #### 3. Technology
+
+0.  Attention Economy # tim wu
 
 a.  Artificial Intelligence
 
