@@ -5,6 +5,11 @@
 ## https://yanglinks.com/
 ## 
 
+## https://www.yang2020.com/policies/modernize-voting/
+### Blockchain Voting
+> Americans should be able to vote via their mobile device, with verification done via blockchain. This would dramatically increase participation in all elections, whether local, state or federal.  
+
+
 https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
 
 ![](https://pbs.twimg.com/media/D0NGHQXXcAA2Uu4.jpg)
