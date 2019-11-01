@@ -1,5 +1,10 @@
 # Andrew-Yang2020
 
+# https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
+## https://www.ayfaq.com/
+## https://yanglinks.com/
+## 
+
 https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
 
 ![](https://pbs.twimg.com/media/D0NGHQXXcAA2Uu4.jpg)
