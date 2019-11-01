@@ -9,6 +9,8 @@
 ### Blockchain Voting
 > Americans should be able to vote via their mobile device, with verification done via blockchain. This would dramatically increase participation in all elections, whether local, state or federal.  
 
+# Climate Calendar Agenda Plan
+https://www.vox.com/future-perfect/2019/8/26/20833263/andrew-yang-climate-plan
 
 https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
 
