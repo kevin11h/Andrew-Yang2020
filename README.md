@@ -14,6 +14,12 @@ https://www.vox.com/future-perfect/2019/8/26/20833263/andrew-yang-climate-plan
 
 https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
 
+
+# https://en.wikipedia.org/wiki/Calling_of_the_disciples
+> Andrew is called the Protokletos or "first-called".
+
+
+
 ![](https://pbs.twimg.com/media/D0NGHQXXcAA2Uu4.jpg)
 
 # Epistles of Andrew
