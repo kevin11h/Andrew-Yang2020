@@ -171,8 +171,14 @@ b. healthcare
 c. Christianity religion
 
 i.  Descend like a Dove ~ Baptism of Andrew.  Sermon
+
 ii. Revelation no more tears
+
 iii. Andrew as a disciple Calling
+
+iv. Shield of Faith Logo
+# https://www.gotquestions.org/shield-of-faith.html
+https://img.pngio.com/crest-png-95-images-in-collection-page-2-crest-png-260_260.jpg
 
 d. Women's rights
 
