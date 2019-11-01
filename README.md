@@ -149,15 +149,19 @@ b. healthcare
 
 c. Christianity religion
 
+i.  Descend like a Dove ~ Baptism of Andrew.  Sermon
+ii. Revelation no more tears
+iii. Andrew as a disciple Calling
+
 d. Women's rights
 
-### 6.  Energy & Environment & Climate Change
-a.  Climate Change (Environment) 
+### 6.  Energy & Environment & Enlightenment
+a.  Climate Change (Environment) & Environmentality & Accountability
 b.  ??
 c.  Energy Clean / Renewable 
 
 
-### 5.  Utility & Transportation & Communication
+### 5.  Utility & Transportation & Communications
 a.  
 b.
 c.  
