@@ -111,7 +111,8 @@ Seven Sages of Societal Change & Civic Literacy
 
 ## Action Call Items 2 Rules
 1.  Email & ZIP Code
-2.  Donate.
+2.  Donate
+3.  Vote
 
 # T.O.C.  Topics Topical Analysis
 
