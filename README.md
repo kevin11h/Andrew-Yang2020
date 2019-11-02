@@ -127,8 +127,8 @@ Seven Sages of Societal Change & Civic Literacy
 16.  Back Inner Cover
 17.  Back Cover Text
 
-## Action Call Items 2 Rules
-1.  Email & ZIP Code
+## Action Call Items 2-3 Rules
+1.  News Subscripture - Email & ZIP Code
 2.  Donate
 3.  Vote
 
