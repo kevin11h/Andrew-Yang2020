@@ -182,6 +182,11 @@ https://img.pngio.com/crest-png-95-images-in-collection-page-2-crest-png-260_260
 
 d. Women's rights
 
+# Women
+### https://www.yang2020.com/policies/fight-for-equal-pay/
+### https://www.yang2020.com/policies/single-parent-assistance/
+### Family https://www.yang2020.com/policies/free-marriage-counseling/
+
 ### 6.  Energy & Environment & Enlightenment
 a.  Climate Change (Environment) & Environmentality & Accountability
 b.  ??
