@@ -109,9 +109,9 @@ Seven Sages of Societal Change & Civic Literacy
 
 1.  Cover:  Title & Subtitle - Principles & Pillars, Values, Visions and Virtues of a New American Society
 2.  Copyrights & License information & Credits to copyeditors & coverdesigners & content contributors & (Co-)authors & commentators & cover designers creative credits Creative commons, content editor, control number, contacts reachout to contact contributors email list, co-publishers, co-producers, co-heirs, co-inheritors, co-laborers list email list
-3.  Commited to "My lovers, our friends" <- Dedication
+3.  Commited to "My lovers, our friends" <- Dedication "For Faina"
 4.  Contents Table ToC
-5.  Clever Quote
+5.  Clever Quote  i. James True Religion  ii. Guy Kawasaki Rules for Revolutionaries
 6.  Foreword, Neither Left nor Right
 7.  Content
 ...
