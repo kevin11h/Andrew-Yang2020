@@ -186,6 +186,8 @@ d. Women's rights
 ### https://www.yang2020.com/policies/fight-for-equal-pay/
 ### https://www.yang2020.com/policies/single-parent-assistance/
 ### Family https://www.yang2020.com/policies/free-marriage-counseling/
+### Family Leave https://www.yang2020.com/policies/paid-family-leave/
+
 
 ### 6.  Energy & Environment & Enlightenment
 a.  Climate Change (Environment) & Environmentality & Accountability
