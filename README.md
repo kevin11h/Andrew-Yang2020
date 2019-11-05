@@ -10,8 +10,10 @@
 
 https://www.instagram.com/p/B2P9DHKH0vy/
 
+
  https://preview.redd.it/zrvkgtm28rv31.png?width=583&format=png&auto=webp&s=730405d940d26261f66f589e1f1c164525113a07
 
+https://i.redd.it/9f8fv3ux9rv31.png
 
 ## https://www.yang2020.com/policies/modernize-voting/
 ### Blockchain Voting
