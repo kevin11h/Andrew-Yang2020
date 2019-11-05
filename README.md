@@ -5,6 +5,14 @@
 ## https://yanglinks.com/
 ## 
 
+## Allies for Women
+![](https://yangprints.com/media/20191005/thumb/yang-women.jpg)
+
+https://www.instagram.com/p/B2P9DHKH0vy/
+
+ https://preview.redd.it/zrvkgtm28rv31.png?width=583&format=png&auto=webp&s=730405d940d26261f66f589e1f1c164525113a07
+
+
 ## https://www.yang2020.com/policies/modernize-voting/
 ### Blockchain Voting
 > Americans should be able to vote via their mobile device, with verification done via blockchain. This would dramatically increase participation in all elections, whether local, state or federal.  
