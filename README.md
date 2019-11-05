@@ -5,6 +5,10 @@
 ## https://yanglinks.com/
 ## 
 
+
+# Youtube to success
+https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
+
 ## Allies for Women
 ![](https://yangprints.com/media/20191005/thumb/yang-women.jpg)
 
@@ -396,3 +400,7 @@ https://yangprints.com/tags/bucks/
 
 # blog
 https://www.yang2020.com/blog/
+
+
+# Youtube to success
+https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
