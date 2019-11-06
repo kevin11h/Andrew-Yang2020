@@ -3,8 +3,10 @@
 # https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 ## https://www.ayfaq.com/
 ## https://yanglinks.com/
-## 
+##
 
+## Book I: https://github.com/kevin11h/Andrew-Yang2020-Technology-Testament
+## Book II: https://github.com/kevin11h/Andrew-Yang-Green-Gospel 
 
 # Youtube to success
 https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
