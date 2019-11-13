@@ -3,7 +3,11 @@
 # https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 ## https://www.ayfaq.com/
 ## https://yanglinks.com/
-##
+
+Leverage Content - Re-Use  & Borrow and Multiply Good Growth Events Activities Ideas
+
+Safety 1st first.  Fear no evil Psalm 23:4
+
 
 ## Book I: https://github.com/kevin11h/Andrew-Yang2020-Technology-Testament
 ## Book II: https://github.com/kevin11h/Andrew-Yang-Green-Gospel 
