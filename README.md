@@ -4,6 +4,8 @@ Freezing Cold Winter 2018 Photo Freeze butt
 
 Crying Conscientious objector crying meme enemies of the Cross
 
+Student Writing publication Submission
+https://asu.digication.com/asu_writers_place/Chang
 
 # https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 ## https://www.ayfaq.com/
