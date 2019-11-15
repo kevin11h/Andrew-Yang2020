@@ -1,5 +1,11 @@
 # Andrew-Yang2020
 
+
+
+### Invite All Andrew Yang2020 Staff Supporters 
+
+### WAR on normal people. WAR is where we're at.
+
 Freezing Cold Winter 2018 Photo Freeze butt
 
 Crying Conscientious objector crying meme enemies of the Cross
