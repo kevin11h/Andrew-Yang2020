@@ -1,14 +1,15 @@
 # Andrew-Yang2020
 
-
-
 ### Invite All Andrew Yang2020 Staff Supporters 
 
-### WAR on normal people. WAR is where we're at.
+### WAR on normal people. WAR is where we're at.  
+https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
 
 Freezing Cold Winter 2018 Photo Freeze butt
 
 Crying Conscientious objector crying meme enemies of the Cross
+
+
 
 Student Writing publication Submission
 https://asu.digication.com/asu_writers_place/Chang
