@@ -1,5 +1,10 @@
 # Andrew-Yang2020
 
+Freezing Cold Winter 2018 Photo Freeze butt
+
+Crying Conscientious objector crying meme enemies of the Cross
+
+
 # https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 ## https://www.ayfaq.com/
 ## https://yanglinks.com/
