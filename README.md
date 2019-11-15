@@ -620,3 +620,7 @@ https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
 ![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/register-to-vote.png)
 
 # VOTER'S REGISTRATION
+
+
+$1MM Slander Campaign by Amazon
+https://www.reddit.com/r/aznidentity/comments/du7wda/something_good_happened_seattles_brown_socialist/
