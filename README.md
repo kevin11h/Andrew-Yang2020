@@ -1,8 +1,8 @@
 # Andrew-Yang2020
+## ARC - Advanced Review Copy
+### Invite All Andrew Yang2020 Staff Supporters.  All are called
 
-### Invite All Andrew Yang2020 Staff Supporters 
-
-### WAR on normal people. WAR is where we're at.  
+### WAR on normal people. WAR is where we're at.  Folks we're at WAR
 https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
 
 Freezing Cold Winter 2018 Photo Freeze butt
@@ -17,6 +17,9 @@ https://asu.digication.com/asu_writers_place/Chang
 # https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
 ## https://www.ayfaq.com/
 ## https://yanglinks.com/
+
+
+# Where is DSC (Digital Social Credit) programs?  Concepts?  Cryptocurrency Implementations
 
 Leverage Content - Re-Use  & Borrow and Multiply Good Growth Events Activities Ideas
 
