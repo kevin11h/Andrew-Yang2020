@@ -27,7 +27,7 @@ Leverage Content - Re-Use  & Borrow and Multiply Good Growth Events Activities I
 
 Safety 1st first.  Fear no evil Psalm 23:4
 
-
+https://github.com/kevin11h/Andrew-Yang-Quote
 ## Book I: https://github.com/kevin11h/Andrew-Yang2020-Technology-Testament
 ## Book II: https://github.com/kevin11h/Andrew-Yang-Green-Gospel 
 
