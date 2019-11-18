@@ -5,7 +5,7 @@
 # New Work Jobs https://github.com/kevin11h/Andrew-Yang2020/blob/master/New_Horizons_Work_Opportunities_%20Engineer%2C%20Data%20Scientist%2C%20Business%20Analyst%20%40%20IDEAS%20Membership%20Companies.pdf
 ### WAR on normal people. WAR is where we're at.  Folks we're at WAR
 https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
-
+# Farmer's Market  https://www.mobilize.us/yang2020/event/159826/?referring_vol=599472&rname=Kevin&share_context=signup-form-modal&share_medium=copy_link&timeslot=856102
 Freezing Cold Winter 2018 Photo Freeze butt
 #### Paycheck https://www.youtube.com/watch?v=bvaHKaMQeEQ
 Crying Conscientious objector crying meme enemies of the Cross
