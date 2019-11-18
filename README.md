@@ -1,7 +1,8 @@
 # Andrew-Yang2020
 ## ARC - Advanced Review Copy
 ### Invite All Andrew Yang2020 Staff Supporters.  All are called
-
+# Invite MIla An
+# New Work Jobs https://github.com/kevin11h/Andrew-Yang2020/blob/master/New_Horizons_Work_Opportunities_%20Engineer%2C%20Data%20Scientist%2C%20Business%20Analyst%20%40%20IDEAS%20Membership%20Companies.pdf
 ### WAR on normal people. WAR is where we're at.  Folks we're at WAR
 https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
 
