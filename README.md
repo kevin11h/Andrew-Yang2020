@@ -6,7 +6,7 @@
 https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
 
 Freezing Cold Winter 2018 Photo Freeze butt
-### Paycheck https://www.youtube.com/watch?v=bvaHKaMQeEQ
+#### Paycheck https://www.youtube.com/watch?v=bvaHKaMQeEQ
 Crying Conscientious objector crying meme enemies of the Cross
 
 #### https://github.com/kevin11h/Andrew-Yang2020/blob/master/articles.md
@@ -16,12 +16,12 @@ https://asu.digication.com/asu_writers_place/Chang
 
 # Spirit of son https://www.youtube.com/watch?v=dkHLY5KJL1o
 
-# https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
-## https://www.ayfaq.com/
-## https://yanglinks.com/
+## https://www.ayfaq.com/q/108/christian-case-for-andrew-yang/
+### https://www.ayfaq.com/
+### https://yanglinks.com/
 
-
-# Where is DSC (Digital Social Credit) programs?  Concepts?  Cryptocurrency Implementations
+# https://www.itri.org.tw/eng/DM/PublicationsPeriods/654743136734356214/content/activity1.html
+## Where is DSC (Digital Social Credit) programs?  Concepts?  Cryptocurrency Implementations
 
 Leverage Content - Re-Use  & Borrow and Multiply Good Growth Events Activities Ideas
 
