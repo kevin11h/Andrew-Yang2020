@@ -650,3 +650,5 @@ https://www.youtube.com/playlist?list=PLyoWCa6MTvVLsF_EOi9aESetWhpGqP3-Z
 
 $1MM Slander Campaign by Amazon
 https://www.reddit.com/r/aznidentity/comments/du7wda/something_good_happened_seattles_brown_socialist/
+
+![](https://yangprints.com/media/AutisticsForYang/thumb/forward-eagle.jpg)
