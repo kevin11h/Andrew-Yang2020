@@ -2,6 +2,7 @@
 ## ARC - Advanced Review Copy
 ### Invite All Andrew Yang2020 Staff Supporters.  All are called
 # Invite MIla An, dingding
+# Invite Slack Channel post FB group link
 ## New Work Jobs https://github.com/kevin11h/Andrew-Yang2020/blob/master/New_Horizons_Work_Opportunities_%20Engineer%2C%20Data%20Scientist%2C%20Business%20Analyst%20%40%20IDEAS%20Membership%20Companies.pdf
 #### WAR on normal people. WAR is where we're at.  Folks we're at WAR
 https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
@@ -13,7 +14,11 @@ Crying Conscientious objector crying meme enemies of the Cross
 
 #### https://github.com/kevin11h/Andrew-Yang2020/blob/master/articles.md
 
-Student Writing publication Submission
+# John 10:10 https://www.gotquestions.org/abundant-life.html
+> *“Scarcity will not save us. Abundance will.”
+# ― Andrew Yang
+
+Student Writing publication Submission?
 https://asu.digication.com/asu_writers_place/Chang
 
 # Spirit of son https://www.youtube.com/watch?v=dkHLY5KJL1o
