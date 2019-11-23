@@ -6,7 +6,7 @@
 #### WAR on normal people. WAR is where we're at.  Folks we're at WAR https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
 ## New Work Jobs https://github.com/kevin11h/Andrew-Yang2020/blob/master/New_Horizons_Work_Opportunities_%20Engineer%2C%20Data%20Scientist%2C%20Business%20Analyst%20%40%20IDEAS%20Membership%20Companies.pdf
 ## Sign Party https://github.com/kevin11h/Andrew-Yang2020/blob/master/%23Yang2020%20-%20Will%20you%20officially%20endorse%20my%20campaign%20for%20president%3F.pdf
-
+# https://www.ebay.com/itm/MATH-HAT-ANDREW-YANG-MADE-IN-USA-100-/123778711290
 ### Friday Night Potluck Mountainview https://www.mobilize.us/yang2020/event/159533/?referring_vol=599472&rname=Kevin&share_context=signup-form-modal&share_medium=copy_link&timeslot=854836
 ### Farmer's Market  https://www.mobilize.us/yang2020/event/159826/?referring_vol=599472&rname=Kevin&share_context=signup-form-modal&share_medium=copy_link&timeslot=856102
 # Freezing Cold Winter 2018 Photo Freeze butt
@@ -653,3 +653,5 @@ $1MM Slander Campaign by Amazon
 https://www.reddit.com/r/aznidentity/comments/du7wda/something_good_happened_seattles_brown_socialist/
 
 ![](https://yangprints.com/media/AutisticsForYang/thumb/forward-eagle.jpg)
+
+
