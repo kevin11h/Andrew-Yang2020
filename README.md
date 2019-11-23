@@ -12,7 +12,7 @@
 # Freezing Cold Winter 2018 Photo Freeze butt
 #### Paycheck https://www.youtube.com/watch?v=bvaHKaMQeEQ
 Crying Conscientious objector crying meme enemies of the Cross
-
+# https://www.youtube.com/watch?v=J1ZO8EzJ3zE
 #### https://github.com/kevin11h/Andrew-Yang2020/blob/master/articles.md
 # UBI Quotes https://github.com/kevin11h/Andrew-Yang2020-Quotes
 # John 10:10 https://www.gotquestions.org/abundant-life.html
