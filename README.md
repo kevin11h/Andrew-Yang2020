@@ -655,3 +655,5 @@ https://www.reddit.com/r/aznidentity/comments/du7wda/something_good_happened_sea
 ![](https://yangprints.com/media/AutisticsForYang/thumb/forward-eagle.jpg)
 
 
+### small supporters, big difference
+![](https://pbs.twimg.com/media/EKVqGc7WwAUy8Ay?format=jpg&name=small)
