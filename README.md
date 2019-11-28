@@ -1,7 +1,6 @@
 # Ally Follow Brianna Wu for Congress Campaign Canvass Voters Andrew-Yang2020
 ## ARC - Advanced Review Copy
 ### 1. new work IDEAS 2. support PDF 3.  https://github.com/kevin11h/Andrew-Yang-Debate-Interview-Feedback-Score
-## Invite MIla An, dingding, Solomon, Alison, TK Wong Invite All Andrew Yang2020 Staff Supporters.  All are called
 # 1. What's Andrew's Policy on helping people with disability?  What's Andrew's Policy on pets?
 #### WAR on normal people. WAR is where we're at.  Folks we're at WAR https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
 ## New Work Jobs https://github.com/kevin11h/Andrew-Yang2020/blob/master/New_Horizons_Work_Opportunities_%20Engineer%2C%20Data%20Scientist%2C%20Business%20Analyst%20%40%20IDEAS%20Membership%20Companies.pdf
