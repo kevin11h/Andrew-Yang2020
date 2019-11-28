@@ -1,6 +1,6 @@
 ## Ally Follow Brianna Wu for Congress Campaign Canvass Voters Andrew-Yang2020
 ## ARC - Advanced Review Copy
-# OPW & Atrium Holiday party https://www.facebook.com/events/850774508674185/
+# OPW & Atrium December 11th Holiday party https://www.atrium.co/resources/?utm_source=display&utm_medium=advertising&utm_campaign=ppc-2019-04-gdn&utm_term=retargeting&gclid=Cj0KCQiAt_PuBRDcARIsAMNlBdowiv-btkx_Tx6sn7Qsu6L0fkG7jHa1IzrYzgYxwmAI9ZtfKIYwyY8aAtreEALw_wcB https://www.facebook.com/events/850774508674185/
 ##### 1. new work IDEAS 2. support PDF 3.  https://github.com/kevin11h/Andrew-Yang-Debate-Interview-Feedback-Score
 ### 1. What's Andrew's Policy on helping people with disability?  What's Andrew's Policy on pets?
 #### WAR on normal people. WAR is where we're at.  Folks we're at WAR https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
