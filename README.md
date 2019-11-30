@@ -1,4 +1,4 @@
-### Ally Follow Brianna Wu for Congress Campaign Canvass Voters Andrew-Yang2020
+### Ally Sign Party https://docs.google.com/forms/d/e/1FAIpQLSfJQthLm14cuDsGZ3fHZKnNu8ll2b32dCNQHoF8bEbzHJb0nw/viewform?fbzx=3397861298285762785
 ## NYC Cnarity Ball https://youtu.be/hFS4ZaiMCxg
 # ARC - Advanced Review Copy
 # OPW & Atrium December 11th Holiday party https://www.atrium.co/resources/?utm_source=display&utm_medium=advertising&utm_campaign=ppc-2019-04-gdn&utm_term=retargeting&gclid=Cj0KCQiAt_PuBRDcARIsAMNlBdowiv-btkx_Tx6sn7Qsu6L0fkG7jHa1IzrYzgYxwmAI9ZtfKIYwyY8aAtreEALw_wcB https://www.facebook.com/events/850774508674185/
