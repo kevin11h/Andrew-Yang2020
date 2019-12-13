@@ -1,19 +1,25 @@
+# Notes
+## Student Writing publication Submission?
+## https://asu.digication.com/asu_writers_place/Chang
+## Civic Literacy?
+## Steven Li Yang2020
+
 ### Ally Sign Party https://docs.google.com/forms/d/e/1FAIpQLSfJQthLm14cuDsGZ3fHZKnNu8ll2b32dCNQHoF8bEbzHJb0nw/viewform?fbzx=3397861298285762785
 ## NYC Cnarity Ball https://youtu.be/hFS4ZaiMCxg
 # ARC - Advanced Review Copy
-# OPW & Atrium December 11th Holiday party https://www.atrium.co/resources/?utm_source=display&utm_medium=advertising&utm_campaign=ppc-2019-04-gdn&utm_term=retargeting&gclid=Cj0KCQiAt_PuBRDcARIsAMNlBdowiv-btkx_Tx6sn7Qsu6L0fkG7jHa1IzrYzgYxwmAI9ZtfKIYwyY8aAtreEALw_wcB https://www.facebook.com/events/850774508674185/
+##### OPW & Atrium December 11th Holiday party https://www.atrium.co/resources/?utm_source=display&utm_medium=advertising&utm_campaign=ppc-2019-04-gdn&utm_term=retargeting&gclid=Cj0KCQiAt_PuBRDcARIsAMNlBdowiv-btkx_Tx6sn7Qsu6L0fkG7jHa1IzrYzgYxwmAI9ZtfKIYwyY8aAtreEALw_wcB https://www.facebook.com/events/850774508674185/
 # https://www.goodreads.com/quotes/10077923-for-the-last-mile-there-are-now-food-delivery-robots
 > “For the last mile, there are now food delivery robots being used in Washington DC, and San Francisco. They are essentially coolers on wheels that deliver food to your door for around a dollar.”
 ##### 1. new work IDEAS 2. support PDF 3.  https://github.com/kevin11h/Andrew-Yang-Debate-Interview-Feedback-Score
-## 1. What's Andrew's Policy on helping people with disability?  What's Andrew's Policy on pets?
+# 1. What's Andrew's Policy on helping people with disability?  What's Andrew's Policy on pets?
 ### WAR on normal people. WAR is where we're at.  Folks we're at WAR https://www.amazon.com/War-Normal-People-Disappearing-Universal/dp/0316414247
-## New Work Jobs https://github.com/kevin11h/Andrew-Yang2020/blob/master/New_Horizons_Work_Opportunities_%20Engineer%2C%20Data%20Scientist%2C%20Business%20Analyst%20%40%20IDEAS%20Membership%20Companies.pdf
-## Sign Party https://github.com/kevin11h/Andrew-Yang2020/blob/master/%23Yang2020%20-%20Will%20you%20officially%20endorse%20my%20campaign%20for%20president%3F.pdf
+##### New Work Jobs https://github.com/kevin11h/Andrew-Yang2020/blob/master/New_Horizons_Work_Opportunities_%20Engineer%2C%20Data%20Scientist%2C%20Business%20Analyst%20%40%20IDEAS%20Membership%20Companies.pdf
+# Sign Party https://github.com/kevin11h/Andrew-Yang2020/blob/master/%23Yang2020%20-%20Will%20you%20officially%20endorse%20my%20campaign%20for%20president%3F.pdf
 # https://www.ebay.com/itm/MATH-HAT-ANDREW-YANG-MADE-IN-USA-100-/123778711290
 ### Friday Night Potluck Mountainview https://www.mobilize.us/yang2020/event/159533/?referring_vol=599472&rname=Kevin&share_context=signup-form-modal&share_medium=copy_link&timeslot=854836
 ### Farmer's Market  https://www.mobilize.us/yang2020/event/159826/?referring_vol=599472&rname=Kevin&share_context=signup-form-modal&share_medium=copy_link&timeslot=856102
 # Freezing Cold Winter 2018 Photo Freeze butt
-#### Paycheck https://www.youtube.com/watch?v=bvaHKaMQeEQ
+###### Paycheck https://www.youtube.com/watch?v=bvaHKaMQeEQ
 Crying Conscientious objector crying meme enemies of the Cross
 # https://www.youtube.com/watch?v=J1ZO8EzJ3zE
 #### https://github.com/kevin11h/Andrew-Yang2020/blob/master/articles.md
@@ -22,8 +28,6 @@ Crying Conscientious objector crying meme enemies of the Cross
 > *“Scarcity will not save us. Abundance will.”
 # ― Andrew Yang
 
-Student Writing publication Submission?
-https://asu.digication.com/asu_writers_place/Chang
 
 # Spirit of son https://www.youtube.com/watch?v=dkHLY5KJL1o
 
