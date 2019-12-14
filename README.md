@@ -3,7 +3,7 @@
 ## https://asu.digication.com/asu_writers_place/Chang
 ## Civic Literacy?
 ## Steven Li Yang2020
-
+https://harmony.one/pdf/whitepaper.pdf
 ### Ally Sign Party https://docs.google.com/forms/d/e/1FAIpQLSfJQthLm14cuDsGZ3fHZKnNu8ll2b32dCNQHoF8bEbzHJb0nw/viewform?fbzx=3397861298285762785
 ## NYC Cnarity Ball https://youtu.be/hFS4ZaiMCxg
 # ARC - Advanced Review Copy
