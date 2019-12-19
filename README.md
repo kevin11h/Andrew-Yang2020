@@ -35,7 +35,8 @@ Crying Conscientious objector crying meme enemies of the Cross
 ### https://yanglinks.com/
 
 # https://www.itri.org.tw/eng/DM/PublicationsPeriods/654743136734356214/content/activity1.html
-## Where is DSC (Digital Social Credit) programs?  Concepts?  Cryptocurrency Implementations
+# Where is DSC (Digital Social Credit) programs?  Concepts?  Cryptocurrency Implementations
+
 
 Leverage Content - Re-Use  & Borrow and Multiply Good Growth Events Activities Ideas
 
@@ -661,3 +662,7 @@ https://www.reddit.com/r/aznidentity/comments/du7wda/something_good_happened_sea
 
 ### small supporters, big difference
 ![](https://pbs.twimg.com/media/EKVqGc7WwAUy8Ay?format=jpg&name=small)
+
+
+## Good night alt-right
+![](https://i.redd.it/cv0ldm61m9541.jpg)
