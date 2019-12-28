@@ -1,4 +1,4 @@
-# Notes Change Your Profile Picture Post Andrew Yang Filter 
+# https://kdp.amazon.com/en_US/help/topic/G201113520#front_spine
 ## Civic Literacy?  Steven Li Yang2020  Student Writing publication Submission? https://asu.digication.com/asu_writers_place/Chang
 # Ask documentation question? https://harmony.one/pdf/whitepaper.pdf
 # What does Humanity First mean to you survey poll?  https://www.facebook.com/groups/1200718113417841/
