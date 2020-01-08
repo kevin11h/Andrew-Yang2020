@@ -1,5 +1,6 @@
 # https://kdp.amazon.com/en_US/help/topic/G201113520#front_spine
 # Student Summary
+# Voter Registration https://www.reddit.com/r/YangForPresidentHQ/comments/d1dypc/voter_registration_megathread/?utm_source=share&utm_medium=web2x
 ## Civic Literacy?  Steven Li Yang2020  Student Writing publication Submission? https://asu.digication.com/asu_writers_place/Chang
 # Ask documentation question? https://harmony.one/pdf/whitepaper.pdf
 # What does Humanity First mean to you survey poll?  https://www.facebook.com/groups/1200718113417841/
