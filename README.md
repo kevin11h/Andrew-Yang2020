@@ -672,3 +672,7 @@ https://www.reddit.com/r/aznidentity/comments/du7wda/something_good_happened_sea
 ![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/81869701_165784111443682_216144581358518272_n.jpg)
 
 https://drive.google.com/open?id=1fIy1ZEXscEGkIDFysx5UdDYPUv9YIEcO
+
+# Blockchain bitcoin youtube videos
+https://www.youtube.com/watch?v=-hkigsq5ZRY&list=PL9FYZMS_OomFrYPlU3XlnXkBVR8wAxZnT&index=59
+https://www.youtube.com/watch?v=qo0_6zOPSOs&list=PL9FYZMS_OomFrYPlU3XlnXkBVR8wAxZnT&index=78
