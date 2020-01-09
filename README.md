@@ -677,3 +677,6 @@ https://drive.google.com/open?id=1fIy1ZEXscEGkIDFysx5UdDYPUv9YIEcO
 # Blockchain bitcoin youtube videos
 https://www.youtube.com/watch?v=-hkigsq5ZRY&list=PL9FYZMS_OomFrYPlU3XlnXkBVR8wAxZnT&index=59
 https://www.youtube.com/watch?v=qo0_6zOPSOs&list=PL9FYZMS_OomFrYPlU3XlnXkBVR8wAxZnT&index=78
+
+
+![](https://lh4.googleusercontent.com/UOlbKBdtB0He8DAWnO_DodLSFEfhqXJ7ynjBs9avbQqHG0HEVbJzyOGXqnG3-MrL8guHm15MDAszaNbOVm2D=w1920-h869-rw)
