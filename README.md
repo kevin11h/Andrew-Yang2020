@@ -684,3 +684,5 @@ https://www.youtube.com/watch?v=qo0_6zOPSOs&list=PL9FYZMS_OomFrYPlU3XlnXkBVR8wAx
 
 # https://humanityforyang.com/resources/
 # https://www.canandrewyangwin.com/#beating-trump
+
+# Vote on https://humanityforyang.com/vote-for-yang/
