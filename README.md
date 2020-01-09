@@ -680,3 +680,7 @@ https://www.youtube.com/watch?v=qo0_6zOPSOs&list=PL9FYZMS_OomFrYPlU3XlnXkBVR8wAx
 
 
 ![](https://lh4.googleusercontent.com/UOlbKBdtB0He8DAWnO_DodLSFEfhqXJ7ynjBs9avbQqHG0HEVbJzyOGXqnG3-MrL8guHm15MDAszaNbOVm2D=w1920-h869-rw)
+
+
+# https://humanityforyang.com/resources/
+# https://www.canandrewyangwin.com/#beating-trump
