@@ -1,4 +1,4 @@
-# https://kdp.amazon.com/en_US/help/topic/G201113520#front_spine
+# https://kdp.amazon.com/en_US/help/topic/G201113520#front_spine 
 # Student Summary
 # Voter Registration https://www.reddit.com/r/YangForPresidentHQ/comments/d1dypc/voter_registration_megathread/?utm_source=share&utm_medium=web2x
 ## Civic Literacy?  Steven Li Yang2020  Student Writing publication Submission? https://asu.digication.com/asu_writers_place/Chang
@@ -686,3 +686,5 @@ https://www.youtube.com/watch?v=qo0_6zOPSOs&list=PL9FYZMS_OomFrYPlU3XlnXkBVR8wAx
 # https://www.canandrewyangwin.com/#beating-trump
 
 # Vote on https://humanityforyang.com/vote-for-yang/
+
+https://www.reddit.com/r/aznidentity/comments/emdett/great_discussion_about_andrew_yang_asian_identity/
