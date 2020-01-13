@@ -688,3 +688,16 @@ https://www.youtube.com/watch?v=qo0_6zOPSOs&list=PL9FYZMS_OomFrYPlU3XlnXkBVR8wAx
 # Vote on https://humanityforyang.com/vote-for-yang/
 
 https://www.reddit.com/r/aznidentity/comments/emdett/great_discussion_about_andrew_yang_asian_identity/
+
+
+
+
+
+
+# https://drive.google.com/open?id=1FfvJqBG6oGJE_rKbkpS-g54syF01ClKy
+# Brand Bible style guide line guidelines colors color scheme hex codes
+1. Navy Blue #073763
+2.YANG RED Hex Code: #DA3248 RGB: 218, 50, 72
+3. YANG BLUE Hex Code: #133467 RGB: 19, 52, 103
+4. YANG BLUE DARK Hex Code: #13294B RGB: 19, 41, 75 CMYK: 99, 86, 42, 41
+5. YANG GOLD Hex Code: #F2A00F RGB: 242, 160, 15
