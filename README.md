@@ -722,7 +722,7 @@ Andrew Yang is offering You $1,000 per month!
 
 Andrew is an American, parent and patriot campaigning in the 2020 elections for the office of Presidency of the United States. He's a man with the plan for rescuing us from the future massive market shift and global economic crisis caused by AI & automation. He places us all on the paths of progress, forward with 3 big principles and policies to save society:
 
-1. Freedom Dividend OR Universal Basic Income
+1. $1,000 Freedom Dividend AKA Universal Basic Income
 2. Medicare for All
 3. Human-Centered Capitalism
 
@@ -732,6 +732,8 @@ About Andrew:
 
 Andrew Yang is an entrepreneur and author running for President as a Democrat in 2020. Andrew has worked in startups and early-stage growth companies as a founder or executive for almost twenty years. In 2011 he founded Venture for America, a national entrepreneurship fellowship that has helped create almost 3,000 jobs in Detroit, Cleveland, Pittsburgh, Baltimore and other cities throughout the country. In his book The War on Normal People, he explains the mounting crisis of the automation of labor and makes the case for the Freedom Dividend, a Universal Basic Income of $1,000 a month for every American as well as other policies to progress to the next stage of capitalism. Andrew was named a Presidential Ambassador of Entrepreneurship by the White House under the Obama administration and a Champion of Change for his work with Venture for America. He lives in New York City with his wife and two sons.
 
+> A portion of the net proceeds from your purchase of this book supports Andrew Yang's 2020 Presidential Campaign efforts to across the nation. For more information on how you can help, please visit www.yang2020.com. Thank you.
+
 1. Andrew Yang
 2. President
 3. Math
@@ -739,3 +741,5 @@ Andrew Yang is an entrepreneur and author running for President as a Democrat in
 5. money
 6. dollars
 7. $1000
+
+A portion of the net proceeds from your purchase of this book supports Andrew Yang's 2020 Presidential Campaign efforts to across the nation. For more information on how you can help, please visit www.yang2020.com. Thank you.
