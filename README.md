@@ -1,5 +1,10 @@
 ![](https://pbs.twimg.com/media/ETAZxh9WkAAccu1?format=jpg&name=large)
 
+# Book Covers
+![](https://images-na.ssl-images-amazon.com/images/I/41JIh4KMHRL._SX355_BO1,204,203,200_.jpg)
+![](https://lh3.googleusercontent.com/1izmp4tzI8-kCSoqO7gk0nn3QzPuFl5_zFa08rgmxBpw_dr3tuea2urE2VGhFtRp4yntr1A=s85)
+## https://blog.publishdrive.com/book-cover-font-guide-part-1/#general-rules-for-book-cover-fonts
+
 # https://kdp.amazon.com/en_US/help/topic/G201113520#front_spine 
 # Student Summary
 # Voter Registration https://www.reddit.com/r/YangForPresidentHQ/comments/d1dypc/voter_registration_megathread/?utm_source=share&utm_medium=web2x
