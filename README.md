@@ -1,3 +1,26 @@
+Andrew Yang wants YOU and your family and every American household to have $1000 per month!
+
+Note:
+*Net portions of proceeds from your purchase of this product go to Andrew Yang related nationwide non-profit organizations, relief & recovery efforts, and future ventures. Dear readers, thank you for your support.
+
+Andrew Yang Brief Biography Bite:
+
+Andrew Yang is entrepreneur and author of 'The War on Normal People' about automation, jobs and Universal Basic Income, the founder of Venture for America, an organization that recruits and trains top college graduates to start-ups in emerging US cities to generate jobs and train future entrepreneurs. In 6 years we helped created 2,500 jobs and the work we did had me recognized by the Obama White House as a 2012 Champion of Change and a 2015 Presidential Ambassador for Global Entrepreneurship. Previously Andrew was co-founder and executive at a number of start-up and early stage companies, including CEO of an education company acquired by the Washington Post/Kaplan in 2009. In 2011 he founded Venture for America, a national entrepreneurship fellowship that has helped create almost 3,000 jobs in Detroit, Cleveland, Pittsburgh, Baltimore and other cities throughout the country. In his book The War on Normal People, he explains the mounting crisis of the automation of labor and makes the case for the Freedom Dividend, a Universal Basic Income of $1,000 a month for every American as well as other policies to progress to the next stage of capitalism. Andrew was named a Presidential Ambassador of Entrepreneurship by the White House under the Obama administration and a Champion of Change for his work with Venture for America. He lives in New York City with his wife and two sons.
+
+Andrew Yang's 2020 Campaign:
+
+     "I’m Andrew Yang, and I’m running for President as a Democrat in 2020 because I fear for the future of our country. New technologies – robots, software, artificial intelligence – have already destroyed more than 4 million US jobs, and in the next 5-10 years, they will eliminate millions more. A third of all American workers are at risk of permanent unemployment. And this time, the jobs will not come back.
+
+     I’m not a career politician—I’m an entrepreneur who understands the economy. It’s clear to me, and to many of the nation’s best job creators, that we need to make an unprecedented change, and we need to make it now. But the establishment isn’t willing to take the necessary bold steps. As president, my first priority will be to implement Universal Basic Income for every American adult between the ages of 18 and 64: $1,000 a month, no strings attached, paid for by a new tax on the companies benefiting most from automation. UBI is just the beginning. A crisis is underway—we have to work together to stop it, or risk losing the heart of our country. The stakes have never been higher..."
+
+This pocket book is a primer, archive and collection of Yang2020 campaign's policy platform formatted for public educational awareness and civic literacy series knowledge product created through truly tumultuous and revolutionary times in Year 2020, in an age of AI rising and coming of the automation wave, work displacement, joblessness, global pandemic and worldwide protests, raises questions that asks the individual native citizen what does freedom really mean to us in present day American life?
+
+How can we create and save an America of opportunity, freedom, equality, and abundance?
+
+Political Science / US History / Civic Literacy $17.99 US  $24.13 CA  ISBN: 978-0-578-74497-1
+
+For more information visit us and go to see Andrew Yang Policy Series www.yang2020.com/policies
+
 ![](https://pbs.twimg.com/media/ETAZxh9WkAAccu1?format=jpg&name=large)
 
 # Book Covers
