@@ -6,7 +6,7 @@
 
 
 ![Ephesians 6:12](https://www.kingjamesbibleonline.org/Inspirational-Images/large/Ephesians_6-12.jpg)
-# > No, for we face a very real and present spiritual struggle which questions and tests whether American ideals of liberty, equality, and freedom will withstand the coming storm of mass workforce displacement, millions unemployed, and mechanistic mentality in the mind and rise of AI
+# > No, for we face a very real and present spiritual struggle which questions and tests whether American ideals of liberty, equality, and freedom will withstand the coming storm of mass workforce displacement, millions unemployed \[in an age of automation\], and mechanistic mentality in the mind and rise of AI.
 
 ![Ephesians 6:10-20](https://i.pinimg.com/originals/95/1f/26/951f2677727a41fa003af2165c13281d.jpg)
 
