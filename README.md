@@ -9,7 +9,7 @@
 # > No, for we face a very real and present spiritual struggle which questions and tests whether American ideals of liberty, equality, and freedom will withstand the coming storm of mass workforce displacement, millions unemployed \[in an age of automation\], and mechanistic mentality in the mind and rise of AI.
 
 ![Ephesians 6:10-20](https://i.pinimg.com/originals/95/1f/26/951f2677727a41fa003af2165c13281d.jpg)
-
+### A universal crisis calls for a universal basic income solution. 
 
 ![Hebrews 4:12](https://dailyverse.knowing-jesus.com/w/dv_700/dailyverse-images/94/Hebrews%204-12%20The%20Word%20Of%20God%20Is%20Living%20Powerful%20And%20Sharper%20Than%20A%20Two%20Edged%20Sword%20blue.jpg)
 
