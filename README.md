@@ -1,4 +1,41 @@
+> "Andrew is one of those rare visionaries who puts dreams into action. This book is a road map for young people for designing their careers, a playbook for policy makers for rebuilding our cities, and a path [forward] toward moving entrepreneurship back to the center of the American economy."
+- Arianna huffington, founder & editor in chief of the Huffington Post
+
+https://www.youtube.com/watch?v=mJpj145INdo
+
+1.A We now literally live a wake up call of battle that Andrew Yang forewarns and presciently names in his book "The War on Normal People." \[Ephesians 6\]
+1.B. We now literally live a \[crisis\] call of battle that Andrew Yang forewarns and presciently names in his book "The War on Normal People." \[Ephesians 6\]
+
+2.A Our hour of \[tribulation, affliction, crisis\] is no mere military engagement, political intrigue nor nominal affair — no, we are experiencing a very real, universal spiritual struggle for \[national ideology sounds too much like natsi\] that tests whether the definition of democracy will withstand the storm of mass work displacement in the age of and rapid rise of artificial intelligence, if we can continue to protect for the sake of upholding our foundational ideals of our American heritage,  only war is the salvation of our souls. ,of in a coming \[crisis, storm\] age of automation waves, artificial intelligence, rapid rise of robotic massive work displacement and a very a of sake ideals sake are at stake  one and the 
+
+2.B A Our hour of tribulation \[Romans 8:35\] is no mere military engagement, political intrigue nor nominal affair. \[Romans 8:35\] No, for we are experiencing \[facing\] a very real and spiritual struggle for the sake of safeguarding the foundational American ideals of liberty, equality, and freedom that tests whether the letter and definition of democracy will withstand the \[coming\] storm of mass work displacement in an age of automation and rapid rise of artificial intelligence — our only war is the salvation of our souls.
+
+2.C A Our hour of tribulation \[Romans 8:35\] is no mere military engagement, political intrigue nor nominal affair. \[Romans 8:35\] 
+
+No, for we are experiencing a very real and spiritual struggle for the sake of safeguarding foundational American ideals of liberty, equality, and freedom that tests whether the definition of democracy will withstand the \[coming\] storm of mass work displacement, in an age of automation, \[mechanized labor,\]  and rapid rise of artificial intelligence — our only war is for the salvation of our souls \[and of our nation\].
+
+## https://www.yang2020.com/what-is-freedom-dividend-faq/
+
+2.D
+
+No, for we are experiencing a very real and spiritual struggle for the sake of safeguarding honored American ideals of liberty, equality, and freedom that tests whether the definition of democracy will withstand the \[coming\] storm of mass work displacement, in an age of automation \[mechanized labor,\]  and rapid rise of robotic labor, artificial intelligence and mechanized minds — our only war is therefore the salvation of our souls \[and of our nation\].
+
+2.E
+
+No, for we are experiencing a very real and spiritual struggle which challenges the honored American ideals of liberty, equality, and freedom, that tests whether the definition of democracy will withstand the \[coming\] storm of mass work displacement, in an age of automation \[mechanized labor,\] and rapid rise of robotic labor, artificial intelligence and mechanized minds — our only war is therefore the salvation of our souls \[and the heart of our nation\].
+
+
+3. Faith is required in this fight, and Wisdom is needed to win the war — a universal crisis calls is for a universal basic income solution.
+
+righteousness justice freedom spiritual struggle for freedom, justice, and righteousness technologically dominated
+
+heart of human-centered capitalism gold hope on road to recovery
+
+
+# amazon blurb
+
 Andrew Yang wants YOU and your family and every American household to have $1000 per month!
+
 
 Note:
 *Net portions of proceeds from your purchase of this product go to Andrew Yang related nationwide non-profit organizations, relief & recovery efforts, and future ventures. Dear readers, thank you for your support.
