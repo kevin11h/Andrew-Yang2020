@@ -14,6 +14,7 @@
 ![Hebrews 4:12](https://dailyverse.knowing-jesus.com/w/dv_700/dailyverse-images/94/Hebrews%204-12%20The%20Word%20Of%20God%20Is%20Living%20Powerful%20And%20Sharper%20Than%20A%20Two%20Edged%20Sword%20blue.jpg)
 
 ![Revelations 21:1-2](https://2.bp.blogspot.com/-d42yW4zGiIo/XGQVLRrii9I/AAAAAAAAEPo/YPCs8TyAmc09CMHbyOuisPCuYjahL1-7ACLcBGAs/s1600/e93b1872e2d2dce3b6fe3294164fb72e.jpg) 
+# New social contract, \[new currency\], new citizenship, new America with a heart of human-centered capitalist
 
 
 ![Psalm 121](https://i.pinimg.com/originals/6d/eb/e8/6debe8434880723c2db63a5db75f01c3.png) 
@@ -24,7 +25,7 @@
 ## > Gold Road to Recovery
 ## > Ascent Climb the Hill of Hope, as we Witness Green Pastures beyond, Along  Path to Peace and Truth, the Tree of Life
 
-New social contract, \[new currency\], new citizenship
+New social contract, \[new currency\], new citizenship, new American heart in human-centered capitalism
 
 > "Andrew is one of those rare visionaries who puts dreams into action. This book is a road map for young people for designing their careers, a playbook for policy makers for rebuilding our cities, and a path [forward] toward moving entrepreneurship back to the center of the American economy."
 - Arianna huffington, founder & editor in chief of the Huffington Post
