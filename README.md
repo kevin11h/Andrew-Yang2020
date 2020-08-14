@@ -15,9 +15,14 @@
 
 ![Revelations 21:1-2](https://2.bp.blogspot.com/-d42yW4zGiIo/XGQVLRrii9I/AAAAAAAAEPo/YPCs8TyAmc09CMHbyOuisPCuYjahL1-7ACLcBGAs/s1600/e93b1872e2d2dce3b6fe3294164fb72e.jpg) 
 
-![Psalm 119](https://alamptomyfeetdotorg.files.wordpress.com/2015/02/image0036.png)
 
 ![Psalm 121](https://i.pinimg.com/originals/6d/eb/e8/6debe8434880723c2db63a5db75f01c3.png) 
+## > As we begin our Ascent to Climb up the Hill of Hope,
+
+![Psalm 119](https://alamptomyfeetdotorg.files.wordpress.com/2015/02/image0036.png)
+# > Path to Peace and Truth
+## > Gold Road to Recovery
+## > Ascent Climb the Hill of Hope, as we Witness Green Pastures beyond, Along  Path to Peace and Truth, the Tree of Life
 
 New social contract, \[new currency\], new citizenship
 
