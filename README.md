@@ -1,3 +1,20 @@
+# Real leaders listen and read
+
+![](https://scontent-sjc3-1.xx.fbcdn.net/v/t1.0-9/27332189_1584415181613524_5938260716561645932_n.jpg?_nc_cat=109&_nc_sid=110474&_nc_ohc=_kPeLab_AEYAX-6l16L&_nc_ht=scontent-sjc3-1.xx&oh=4e2bcd0978bc3a7602e5738de26f0659&oe=5F5BE6B7)
+
+![](https://www.kingjamesbibleonline.org/Inspirational-Images/large/Ephesians_6-12.jpg)
+
+![](https://i.pinimg.com/originals/95/1f/26/951f2677727a41fa003af2165c13281d.jpg)
+
+
+![](https://dailyverse.knowing-jesus.com/w/dv_700/dailyverse-images/94/Hebrews%204-12%20The%20Word%20Of%20God%20Is%20Living%20Powerful%20And%20Sharper%20Than%20A%20Two%20Edged%20Sword%20blue.jpg)
+
+![](https://2.bp.blogspot.com/-d42yW4zGiIo/XGQVLRrii9I/AAAAAAAAEPo/YPCs8TyAmc09CMHbyOuisPCuYjahL1-7ACLcBGAs/s1600/e93b1872e2d2dce3b6fe3294164fb72e.jpg) 
+
+
+
+New social contract, \[new currency\], new citizenship
+
 > "Andrew is one of those rare visionaries who puts dreams into action. This book is a road map for young people for designing their careers, a playbook for policy makers for rebuilding our cities, and a path [forward] toward moving entrepreneurship back to the center of the American economy."
 - Arianna huffington, founder & editor in chief of the Huffington Post
 
@@ -24,8 +41,15 @@ No, for we are experiencing a very real and spiritual struggle for the sake of s
 
 No, for we are experiencing a very real and spiritual struggle which challenges the honored American ideals of liberty, equality, and freedom, that tests whether the definition of democracy will withstand the \[coming\] storm of mass work displacement, in an age of automation \[mechanized labor,\] and rapid rise of robotic labor, artificial intelligence and mechanized minds — our only war is therefore the salvation of our souls \[and the heart of our nation\].
 
+2.F
 
-3. Faith is required in this fight, and Wisdom is needed to win the war — a universal crisis calls is for a universal basic income solution.
+No, for we are experiencing a very real and spiritual crisis which questions the relevance of American dreams and ideals of liberty, equality, and freedom, that tests if the definition of democracy will withstand the coming storm of mass work displacement, millions unemployed, rapid rise of robotic replacement by the mechanistic means and mind of AI 
+
+2.G
+
+3.A Faith is required in this fight, and Wisdom is needed to win the war — a universal crisis calls is for a universal basic income solution.
+
+3.B.
 
 righteousness justice freedom spiritual struggle for freedom, justice, and righteousness technologically dominated
 
