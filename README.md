@@ -1,6 +1,6 @@
 # Real leaders listen and read
 
-![](https://scontent-sjc3-1.xx.fbcdn.net/v/t1.0-9/27332189_1584415181613524_5938260716561645932_n.jpg?_nc_cat=109&_nc_sid=110474&_nc_ohc=_kPeLab_AEYAX-6l16L&_nc_ht=scontent-sjc3-1.xx&oh=4e2bcd0978bc3a7602e5738de26f0659&oe=5F5BE6B7)
+![](https://image.slidesharecdn.com/morethanconquerorsrm831-39-150727143457-lva1-app6892/95/more-than-conquerors-romans-83139-5-638.jpg?cb=1438007835)
 
 ![](https://www.kingjamesbibleonline.org/Inspirational-Images/large/Ephesians_6-12.jpg)
 
