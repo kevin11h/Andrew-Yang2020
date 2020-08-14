@@ -2,15 +2,22 @@
 
 ![Romans 8:35](https://image.slidesharecdn.com/morethanconquerorsrm831-39-150727143457-lva1-app6892/95/more-than-conquerors-romans-83139-5-638.jpg?cb=1438007835)
 
+# > Our hour of tribulation is no mere military engagement, political intrigue nor nominal affair.  \[Romans 8:35\]
+
+
 ![Ephesians 6:12](https://www.kingjamesbibleonline.org/Inspirational-Images/large/Ephesians_6-12.jpg)
-> No, for we face a very real and present spiritual struggle which questions and tests whether American ideals of liberty, equality, and freedom will withstand the coming storm of mass workforce displacement, millions unemployed, and mechanistic mentality in the mind and rise of AI
+# > No, for we face a very real and present spiritual struggle which questions and tests whether American ideals of liberty, equality, and freedom will withstand the coming storm of mass workforce displacement, millions unemployed, and mechanistic mentality in the mind and rise of AI
 
 ![Ephesians 6:10-20](https://i.pinimg.com/originals/95/1f/26/951f2677727a41fa003af2165c13281d.jpg)
 
+
 ![Hebrews 4:12](https://dailyverse.knowing-jesus.com/w/dv_700/dailyverse-images/94/Hebrews%204-12%20The%20Word%20Of%20God%20Is%20Living%20Powerful%20And%20Sharper%20Than%20A%20Two%20Edged%20Sword%20blue.jpg)
+
+![Psalm 119](https://alamptomyfeetdotorg.files.wordpress.com/2015/02/image0036.png)
 
 ![Revelations 21:1-2](https://2.bp.blogspot.com/-d42yW4zGiIo/XGQVLRrii9I/AAAAAAAAEPo/YPCs8TyAmc09CMHbyOuisPCuYjahL1-7ACLcBGAs/s1600/e93b1872e2d2dce3b6fe3294164fb72e.jpg) 
 
+![Psalm 121](https://i.pinimg.com/originals/6d/eb/e8/6debe8434880723c2db63a5db75f01c3.png) 
 
 
 New social contract, \[new currency\], new citizenship
