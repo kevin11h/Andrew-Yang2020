@@ -1011,3 +1011,8 @@ Match 101
 Full match	1133087-1133095	divinity
 Match 102
 Full match	1133205-1133217	divisibility
+
+
+Net portions of proceeds from your purchase of this product go to Andrew Yang related nationwide non-profit organizations, active relief & recovery efforts, and future ventures in order to help move humanity forward, multiply the new money movement, and make our dream of universal basic income become a beautiful, practical reality. Dear readers, friends, fellow UBI leaders, thank you for your surge of support.
+
+![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/qrcode.png?raw=true)
