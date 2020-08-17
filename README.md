@@ -14,7 +14,7 @@
 
 ![Psalm 85:10](https://gabins.org/refuge/wp-content/uploads/2017/04/psalm-85-10-11.jpg)
 
-!(Ruth 2:12)[https://github.com/kevin11h/Andrew-Yang2020/blob/master/ruth.jpg]
+![Ruth 2:12](https://github.com/kevin11h/Andrew-Yang2020/blob/master/ruth.jpg)
 
 ![Hebrews 4:12](https://dailyverse.knowing-jesus.com/w/dv_700/dailyverse-images/94/Hebrews%204-12%20The%20Word%20Of%20God%20Is%20Living%20Powerful%20And%20Sharper%20Than%20A%20Two%20Edged%20Sword%20blue.jpg)
 
