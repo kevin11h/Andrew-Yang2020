@@ -11,7 +11,12 @@
 ![Ephesians 6:10-20](https://i.pinimg.com/originals/95/1f/26/951f2677727a41fa003af2165c13281d.jpg)
 ### A universal crisis calls for a universal basic income solution. 
 
+
+![Psalm 85:10](https://gabins.org/refuge/wp-content/uploads/2017/04/psalm-85-10-11.jpg)
+
 ![Hebrews 4:12](https://dailyverse.knowing-jesus.com/w/dv_700/dailyverse-images/94/Hebrews%204-12%20The%20Word%20Of%20God%20Is%20Living%20Powerful%20And%20Sharper%20Than%20A%20Two%20Edged%20Sword%20blue.jpg)
+
+
 
 ![Revelations 21:1-2](https://2.bp.blogspot.com/-d42yW4zGiIo/XGQVLRrii9I/AAAAAAAAEPo/YPCs8TyAmc09CMHbyOuisPCuYjahL1-7ACLcBGAs/s1600/e93b1872e2d2dce3b6fe3294164fb72e.jpg) 
 # New social contract, \[new currency\], new citizenship, new America with a heart of human-centered capitalist
@@ -24,6 +29,13 @@
 # > Path to Peace and Truth
 ## > Gold Road to Recovery
 ## > Ascent Climb the Hill of Hope, as we Witness Green Pastures beyond, Along  Path to Peace and Truth, the Tree of Life
+
+
+![Jeremiah 29:11](https://sites.google.com/site/arkoftherockiescoloradosprings/_/rsrc/1533833700162/colorado-springs/Jeremiah-29-11-Colorado-Springs/Jeremiah%2029%2011.png)
+
+![Jeremiah 33:6](https://daily-bible-verse.net/wp-content/uploads/2018/06/Jeremiah33.6-1.jpg)
+
+
 
 New social contract, \[new currency\], new citizenship, new American heart in human-centered capitalism
 
