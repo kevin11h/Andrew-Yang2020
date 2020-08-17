@@ -1050,4 +1050,44 @@ Faith is required to fight the battle, and wisdom is needed to win the war.
 
 
 
+Andrew Yang forewarns and presciently names in his book "The War on Normal People." Our hour of tribulation is no mere military engagement, political intrigue, nor nominal affair.
+     No, for we face a very real and present spiritual struggle which questions whether American principles of liberty, equality, and freedom will withstand the coming tempest storm of automation Armageddon: mass workforce displacement, millions unemployed, and robotic ransom of raw creativity for cold, hollow, and unfeeling mechanistic mentality in the mind and rise of AI. The only war therefore is the Salvation of our souls.
+        Wisdom is needed to win the war. A universal, existential crisis cries out for a universal basic income solution. May enlightenment from UBI's word be your sword of justice & staff of abundance to slay the serpent of selfishness and vanquish the sting of poverty, forever in victory! May awareness of Medicare For All be your shield of mercy and helmet of honor to bring healing in the body. May consciousness of Human Capitalism be a breastplate of righteousness to guarantee a new currency, a new citizenship, and a new heart of collective compassion.
+        Make these words mean more than. Make them your own. Take this book in your hand as a ticket in your hand tour to a new world, a new America, a new citizenship as we make a missionary spiritual pilgrammage May the force of MATH be with us as we Make America Think Harder regarding humanity's role and place in shepherding the Heavenly Kingdom among all nations on earth.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Faith is required to fight the battle, and wisdom is needed to win the war.
+
+
+
+
+
+
+
+
+
+
+
+
+
 ![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/qrcode.png?raw=true)
+
+
+
