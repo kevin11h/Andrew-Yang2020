@@ -1015,4 +1015,39 @@ Full match	1133205-1133217	divisibility
 
 Net portions of proceeds from your purchase of this product go to Andrew Yang related nationwide non-profit organizations, active relief & recovery efforts, and future ventures in order to help move humanity forward, multiply the new money movement, and make our dream of universal basic income become a beautiful, practical reality. Dear readers, friends, fellow UBI leaders, thank you for your surge of support.
 
+
+
+
+Andrew Yang forewarns and presciently names in his book "The War on Normal People." Our hour of tribulation is no mere military engagement, political intrigue, nor nominal affair. 
+    No, for we face a very real and present spiritual struggle which questions whether American principles of liberty, equality, and freedom will withstand the coming tempest storm of automation Armageddon: mass workforce displacement, millions unemployed, and robotic ransom of raw creativity for a cold, hollow, and unfeeling mechanistic mentality in the mind and rise of AI. The only one war is therefore the Salvation of our souls.
+      Wisdom is needed to win this war. A universal, existential crisis cries out for a universal basic income solution. May knowledge of the word of UBI be your sword of justice & staff of abundance to slay the serpent of selfishness and vanquish its sting of poverty forever in victory! May awareness of Medicare For All be your shield of mercy and helmet of honor to bring healing for the body. May consciousness of human-centered capitalism be a breastplate of righteousness to guarantee a new currency, a new citizenship, and a new heart to our collective compassion.
+       Make & take these words as your own. May the force of MATH be with us as we Make America Think Harder regarding humanity's role and place in shepherding Heaven's Kingdom above all nations on earth.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Faith is required to fight the battle, and wisdom is needed to win the war.
+
+
+
+
+
+
+
 ![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/qrcode.png?raw=true)
