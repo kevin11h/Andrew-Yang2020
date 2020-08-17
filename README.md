@@ -22,7 +22,8 @@
 
 ![Revelations 21:1-2](https://2.bp.blogspot.com/-d42yW4zGiIo/XGQVLRrii9I/AAAAAAAAEPo/YPCs8TyAmc09CMHbyOuisPCuYjahL1-7ACLcBGAs/s1600/e93b1872e2d2dce3b6fe3294164fb72e.jpg) 
 # New social contract, \[new currency\], new citizenship, new America with a heart of human-centered capitalist
-
+# https://en.wikipedia.org/wiki/Chinese_theology
+# As we Make America Think Harder regarding humanity's role in stewarding the Heavenly Kingdom among the nations of the earth
 
 ![Psalm 121](https://i.pinimg.com/originals/6d/eb/e8/6debe8434880723c2db63a5db75f01c3.png) 
 ## > As we begin our Ascent to Climb up the Hill of Hope,
