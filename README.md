@@ -1111,7 +1111,7 @@ forewarns and presciently names in his book "The War on Normal People." Our hour
 
 
 
-
+![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/08-18-2020-ANDREW%20YANG%20POLICY%20POCKETBOOK%20BOOK%20BACK%20COVER%20JACKET%20DESIGN%20COVER%20OUR%20BACKS.png?raw=true)
 
 
 
