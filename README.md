@@ -1080,6 +1080,35 @@ Faith is required to fight the battle, and wisdom is needed to win the war.
 
 
 
+forewarns and presciently names in his book "The War on Normal People." Our hour of tribulation is no mere military engagement, political intrigue, nor nominal affair.
+       No, for we face a very real and present spiritual struggle which questions whether foundational American principles, liberty, equality, and freedom, will withstand the coming tempest storm of automation Armageddon — brink of economic collapse, mass workforce displacement, millions unemployed, endless national protest, civil unrest, global pandemic, and the final robotic ransom of raw natural born ingenuity for The Machine — a cold, hollow, artificial and unfeeling mechanistic mentality in the mind and rise of AI. Our only ever war is therefore the Salvation of our souls.
+        Wisdom is needed to win the war. A universal crisis cries out for a Universal Basic Income solution! May Enlightenment from the word of UBI be your sword of justice to slay the serpent of selfishness and the staff of abundance to vanquish the sting of scarcity forever in victory. May Awareness of Medicare For All be your shield of mercy and helmet of honor to bring healing for the body. May Consciousness of Human Capitalism be your breastplate of righteousness to guarantee a new currency, a new citizenship, and a new heart of our collective compassion.
+        Make these words mean more than a list of rules. Make Andrew's policy part of your own personal story, . Take this book in your hand as a ticket in your hand tour to a new world, a new America, a new society, a new citizenship as we make a missionary spiritual pilgrammage May the force of MATH be with us as we Make America Think Harder regarding humanity's role and place in shepherding Heaven's Kingdom above all nations on earth.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1088,6 +1117,8 @@ Faith is required to fight the battle, and wisdom is needed to win the war.
 
 
 ![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/qrcode.png?raw=true)
+
+
 
 
 
