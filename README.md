@@ -25,6 +25,10 @@
 # https://en.wikipedia.org/wiki/Chinese_theology
 # As we Make America Think Harder regarding humanity's role in stewarding the Heavenly Kingdom among the nations of the earth
 
+![](https://image.slidesharecdn.com/sermon06-23-13-130629131757-phpapp02/95/sermon-062313-the-inheritance-pt-2-hebrews-1112-kyle-borger-8-638.jpg?cb=1372511994)
+
+![](https://pbs.twimg.com/media/Ef6HklmWAAAlRQP?format=jpg&name=medium)
+
 ![Psalm 121](https://i.pinimg.com/originals/6d/eb/e8/6debe8434880723c2db63a5db75f01c3.png) 
 ## > As we begin our Ascent to Climb up the Hill of Hope,
 
