@@ -1,4 +1,4 @@
-# We Are experiencing the Greatest technological and economic shift in human history we need a way to help millions of Americans transition
+# We Are experiencing the Greatest technological and economic shift in human history \[the 3rd inning of the 4th industrial revolution\] we need a way to help millions of Americans transition
 
 # Real leaders listen and read
 
