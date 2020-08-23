@@ -1,3 +1,5 @@
+# We Are experiencing the Greatest technological and economic shift in human history we need a way to help millions of Americans transition
+
 # Real leaders listen and read
 
 ![Romans 8:35](https://image.slidesharecdn.com/morethanconquerorsrm831-39-150727143457-lva1-app6892/95/more-than-conquerors-romans-83139-5-638.jpg?cb=1438007835)
