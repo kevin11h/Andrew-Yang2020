@@ -1104,7 +1104,11 @@ forewarns and presciently names in his book "The War on Normal People." Our hour
 
 
 
-
+> We now literally live a wake up call of battle that Andrew Yang forewarns and presciently names in his book "The War on Normal People." Our hour of tribulation is no mere military engagement, political intrigue, nor nominal affair.
+       For we witness a very real and present spiritual struggle in the eve of the greatest economic and societal shift in the 21st century, the Fourth Industrial Revolution, which questions whether foundational American pillars of liberty, equality, and freedom will withstand the next 10 years of a coming firestorm that is automation Armageddon: brink of corporate collapse, mass workforce displacement, millions in job loss, ⅓ permanent unemployment rate, global pandemic, civil unrest, endless national protest, unrelenting climate change, and the final robotic ransom of natural born ingenuity as sacrifice to "The Machine" — a cold, hollow, artificial and unfeeling, mechanistic mentality in the materialist mind of AI. Our only ever war is therefore the Salvation of our souls.
+        Wisdom is needed to win this war. A universal crisis cries out for a heroic Universal Basic Income solution. May enlightenment of UBI's word be your sword of justice that slays the serpent of selfishness and the staff of abundance which vanquishes the sting of scarcity forever in victory. May awareness of Medicare For All be your shield of mercy and helmet of honor which holds the waters of wellness and brings healing to the body. May consciousness of Human Capitalism be your breastplate of righteousness that creates a new currency of courageous compassion and a new heart of entrepreneurial empathy. May the force of MATH be with us as we Make America Think Harder, regarding humanity's role and place in shepherding Heaven's Kingdom above all nations of the earth.
+        Make Andrew's presidential proposals and our prayers of power mean more than metaphors, mantras, acrostics, or a list of rules. Make Yang's policy part of your own personal story. Make our dream of that bright and joyous day complete when we write each family's first UBI check of $1,000 cash payment into a pragmatic reality.
+              Take this book in your hands as a ticket. Lead us all onboard a transcendental venture in seeking a fairer society, in founding a firmer, deeper, more imperishable Plymouth Rock of Promise of a new citizenship and a New America. See the revelation of "The Gardens of Democracy," a restoration of dignity and directionality as we carry love, climb the hill of hope, and move humanity forward with faith, beyond mountains of belief, together toward building a better future for our children, upon waves of progress, across the gold road of recovery, beside green pastures of prosperity, following the path of peace and truth, the tree of life.
 
 
 
@@ -1123,6 +1127,7 @@ forewarns and presciently names in his book "The War on Normal People." Our hour
 
 
 ![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/qrcode.png?raw=true)
+
 
 
 
