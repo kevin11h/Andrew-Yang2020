@@ -1,3 +1,16 @@
+> This may very well be the worst time we’ve ever experienced.
+ 
+> But with your help, we’ll make this moment brighter.
+ 
+> Thank you so much for helping us move toward the light. 
+ 
+> -Andrew Yang
+
+![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/81869701_165784111443682_216144581358518272_n.jpg)
+
+
+
+
 # We Are experiencing the Greatest technological and economic shift in human history \[the 3rd inning of the 4th industrial revolution\] we need a way to help millions of Americans transition
 
 # Real leaders listen and read
