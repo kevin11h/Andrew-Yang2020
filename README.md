@@ -1,3 +1,9 @@
+![Ephesians 6:10-20](https://i.pinimg.com/originals/95/1f/26/951f2677727a41fa003af2165c13281d.jpg)
+### A universal crisis calls for a universal basic income solution. 
+
+
+https://freedom-dividend.com
+
 > This may very well be the worst time we’ve ever experienced.
  
 > But with your help, we’ll make this moment brighter.
