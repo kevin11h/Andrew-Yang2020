@@ -1,6 +1,8 @@
 # LULU COVER MERGER
 ## https://blog.lulu.com/using-canva-for-your-cover/
 ### https://blog.lulu.com/using-canva-for-your-cover/
+#### https://templates.lulu.com/?_ga=2.135059441.1798818002.1599778189-246500562.1599778189
+## http://x.photoscape.org/
 
 ![Ephesians 6:10-20](https://i.pinimg.com/originals/95/1f/26/951f2677727a41fa003af2165c13281d.jpg)
 ### A universal crisis calls for a universal basic income solution. 
