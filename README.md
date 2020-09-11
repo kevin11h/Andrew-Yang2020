@@ -1,3 +1,6 @@
+# AUTOMATED PROOFREADER + GRAMMER CHECKER TOOL  APP
+https://www.paperrater.com/proofreader/proof_results
+
 # LULU COVER MERGER
 #### Where are brothers & siblings of PhotoscapeX? "https://github.com/kevin11h/Find-Photoscape-Alternatives-Brothers-Siblings" ?
 ## https://blog.lulu.com/using-canva-for-your-cover/
