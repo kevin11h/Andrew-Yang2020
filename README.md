@@ -1,4 +1,5 @@
 # AUTOMATED PROOFREADER + GRAMMER CHECKER TOOL  APP
+## SUGGESTIONS & SUPPORT
 https://www.paperrater.com/proofreader/proof_results
 
 # LULU COVER MERGER
