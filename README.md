@@ -1,4 +1,12 @@
 # AUTOMATED PROOFREADER + GRAMMER CHECKER TOOL  APP
+# AMAZON COSTS CALCULATOR
+# COUNT THE COSTS LUKE 14
+![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/equation-formula-for-KDP-royalty.png)
+
+![](https://www.churchhousecollection.com/resources/The%20Parable%20of%20counting%20the%20cost%20coloring%20page3.jpg)
+https://www.gotquestions.org/count-the-cost.html
+> all who see it begin to mock him, saying, ‘This man began to build and was not able to finish.’
+
 ## SUGGESTIONS & SUPPORT
 https://www.paperrater.com/proofreader/proof_results
 
