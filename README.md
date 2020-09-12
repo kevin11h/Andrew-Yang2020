@@ -14,6 +14,7 @@ https://www.paperrater.com/proofreader/proof_results
 https://kdp.amazon.com/en_US/help/topic/G201834180#trim
 ![https://kdp.amazon.com/en_US/help/topic/G201834180#trim](https://m.media-amazon.com/images/G/01/kindle-publication/interior_bleed_image_setup._CB1573855853_.jpg)
 
+# 0.625" = 0.25" + 0.３７５"
 ![](https://m.media-amazon.com/images/G/01/kindle-publication/Interior_bleed_layout.PNG)
 
 
