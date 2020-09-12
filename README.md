@@ -14,6 +14,10 @@ https://www.paperrater.com/proofreader/proof_results
 https://kdp.amazon.com/en_US/help/topic/G201834180#trim
 ![https://kdp.amazon.com/en_US/help/topic/G201834180#trim](https://m.media-amazon.com/images/G/01/kindle-publication/interior_bleed_image_setup._CB1573855853_.jpg)
 
+![](https://m.media-amazon.com/images/G/01/kindle-publication/Interior_bleed_layout.PNG)
+
+
+
 ![Ephesians 6:10-20](https://i.pinimg.com/originals/95/1f/26/951f2677727a41fa003af2165c13281d.jpg)
 ### A universal crisis calls for a universal basic income solution. 
 
@@ -29,9 +33,6 @@ https://freedom-dividend.com
 > -Andrew Yang
 
 ![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/81869701_165784111443682_216144581358518272_n.jpg)
-
-
-![](https://m.media-amazon.com/images/G/01/kindle-publication/Interior_bleed_layout.PNG)
 
 
 
