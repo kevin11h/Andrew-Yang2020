@@ -31,6 +31,8 @@ https://freedom-dividend.com
 ![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/81869701_165784111443682_216144581358518272_n.jpg)
 
 
+![](https://m.media-amazon.com/images/G/01/kindle-publication/Interior_bleed_layout.PNG)
+
 
 
 # We Are experiencing the Greatest technological and economic shift in human history \[the 3rd inning of the 4th industrial revolution\] we need a way to help millions of Americans transition
