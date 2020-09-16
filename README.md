@@ -8,6 +8,7 @@ https://www.gotquestions.org/count-the-cost.html
 > all who see it begin to mock him, saying, ‘This man began to build and was not able to finish.’
 
 ## ERRORS
+### COVER SIZE is 13.815x9.860 
 #> Your expected cover size is 13.815x9.860 but the submitted file size is 8.500x11.000. Learn how to fix common cover issues.
 https://kdp.amazon.com/en_US/help/topic/G201834260#cover
 
