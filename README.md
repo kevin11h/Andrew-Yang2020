@@ -12,6 +12,10 @@ https://www.gotquestions.org/count-the-cost.html
 #> Your expected cover size is 13.815x9.860 but the submitted file size is 8.500x11.000. Learn how to fix common cover issues.
 https://kdp.amazon.com/en_US/help/topic/G201834260#cover
 
+## https://kdp.amazon.com/en_US/help/topic/G201834180#trim
+![](https://m.media-amazon.com/images/G/01/kindle-publication/File_Calculation_EN.PNG)
+
+
 ## SUGGESTIONS & SUPPORT
 https://www.paperrater.com/proofreader/proof_results
 
