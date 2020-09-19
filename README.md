@@ -5,7 +5,11 @@
 
 # Substance ThicknessxGirthxDensity
 `0.002347" x 80`
+
 $0.002347" \cross 80$
+# you're in trouble
+1. https://www.kdpcommunity.com/s/question/0D5f400000yrgvyCAA/article-possible-ways-to-fix-please-fix-the-highlighted-errors-and-other-upload-errors?language=it
+2. https://www.kdpcommunity.com/s/question/0D5f400000yrgvyCAA/article-possible-ways-to-fix-please-fix-the-highlighted-errors-and-other-upload-errors?language=it
 
 ![](https://www.churchhousecollection.com/resources/The%20Parable%20of%20counting%20the%20cost%20coloring%20page3.jpg)
 https://www.gotquestions.org/count-the-cost.html
