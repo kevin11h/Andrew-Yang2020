@@ -10,6 +10,17 @@ $0.002347" \cross 80$
 # you're in trouble
 1. https://www.kdpcommunity.com/s/question/0D5f400000yrgvyCAA/article-possible-ways-to-fix-please-fix-the-highlighted-errors-and-other-upload-errors?language=it
 2. https://www.kdpcommunity.com/s/question/0D5f400000yrgvyCAA/article-possible-ways-to-fix-please-fix-the-highlighted-errors-and-other-upload-errors?language=it
+# PRICING 
+Your Printing Cost
+$6.80per book on Amazon.com
+Hide other marketplaces
+£4.52 on Amazon.co.uk
+€5.70 on Amazon.de
+€5.70 on Amazon.fr
+€5.70 on Amazon.es
+€5.70 on Amazon.it
+¥515 on Amazon.co.jp
+$8.76 on Amazon.ca
 
 ![](https://www.churchhousecollection.com/resources/The%20Parable%20of%20counting%20the%20cost%20coloring%20page3.jpg)
 https://www.gotquestions.org/count-the-cost.html
