@@ -9,7 +9,7 @@
 $0.002347" \cross 80$
 # you're in trouble
 1. https://www.kdpcommunity.com/s/question/0D5f400000yrgvyCAA/article-possible-ways-to-fix-please-fix-the-highlighted-errors-and-other-upload-errors?language=it
-2. https://www.kdpcommunity.com/s/question/0D5f400000yrgvyCAA/article-possible-ways-to-fix-please-fix-the-highlighted-errors-and-other-upload-errors?language=it
+2.https://www.kdpcommunity.com/s/question/0D5f400000jUz1CCAS/please-fix-the-highlighted-errors-to-continue?language=it
 # PRICING 
 Your Printing Cost
 $6.80per book on Amazon.com
