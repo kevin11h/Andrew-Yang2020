@@ -3,6 +3,10 @@
 # COUNT THE COSTS LUKE 14
 ![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/equation-formula-for-KDP-royalty.png)
 
+# Substance ThicknessxGirthxDensity
+`0.002347" x 80`
+$0.002347" \cross 80$
+
 ![](https://www.churchhousecollection.com/resources/The%20Parable%20of%20counting%20the%20cost%20coloring%20page3.jpg)
 https://www.gotquestions.org/count-the-cost.html
 > all who see it begin to mock him, saying, ‘This man began to build and was not able to finish.’
