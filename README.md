@@ -26,6 +26,8 @@ $8.76 on Amazon.ca
 https://www.gotquestions.org/count-the-cost.html
 > all who see it begin to mock him, saying, ‘This man began to build and was not able to finish.’
 
+![](https://media.swncdn.com/cms/IB/Your-Daily-Verse/72851-philippians-1-6-2.800w.tn.png)
+
 ## ERRORS
 ### COVER SIZE is 13.815x9.860 
 #> Your expected cover size is 13.815x9.860 but the submitted file size is 8.500x11.000. Learn how to fix common cover issues.
