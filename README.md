@@ -26,6 +26,16 @@ $8.76 on Amazon.ca
 https://www.gotquestions.org/count-the-cost.html
 > all who see it begin to mock him, saying, ‘This man began to build and was not able to finish.’
 
+![](https://julianpanga.files.wordpress.com/2015/11/noah-and-the-people.jpg)
+![](https://i.pinimg.com/564x/6c/cc/66/6ccc6687666bbdc31d004a5fc950e6b7.jpg)
+
+### 2 Peter 3:1-7
+
+#### The Day of the Lord Will Come
+3 This is now the second letter that I am writing to you, beloved. In both of them I am stirring up your sincere mind by way of reminder, 2 that you should remember the predictions of the holy prophets and the commandment of the Lord and Savior through your apostles, 3 knowing this first of all, that scoffers will come in the last days with scoffing, following their own sinful desires. 4 They will say, “Where is the promise of his coming? For ever since the fathers fell asleep, all things are continuing as they were from the beginning of creation.” 5 For they deliberately overlook this fact, that the heavens existed long ago, and the earth was formed out of water and through water by the word of God, 6 and that by means of these the world that then existed was deluged with water and perished. 7 But by the same word the heavens and earth that now exist are stored up for fire, being kept until the day of judgment and destruction of the ungodly.
+
+
+
 ![](https://media.swncdn.com/cms/IB/Your-Daily-Verse/72851-philippians-1-6-2.800w.tn.png)
 
 ## ERRORS
