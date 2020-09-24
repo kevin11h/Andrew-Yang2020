@@ -1224,6 +1224,29 @@ forewarns and presciently names in his book "The War on Normal People." Our hour
 ![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/08-18-2020-ANDREW%20YANG%20POLICY%20POCKETBOOK%20BOOK%20BACK%20COVER%20JACKET%20DESIGN%20COVER%20OUR%20BACKS.png?raw=true)
 
 
+ With your support, we’ve increased awareness of and action on the issues that are important to our members - as well as fought for candidates who we know will advocate for the best interests of the American public.
+ 
+ Can we count on your support in this fight?
+ 
+ Walsingham, who’s committed to passing a Freedom 
+ 
+ # T-minus 52 days
+ 
+ ## Your gift will lift our candidates, our ideals, and our solutions to new heights - and you’ll help us build an America that serves you better (and we promise we’ll keep reaching out to you on the best way to get there).
+> Tell us now how much you’re willing to contribute to help move humanity forward. We thank you profusely for your support - and we look forward to the world you’ll help us build.
+
+
+BIPoC, Native Indigenous People, First Nations People, Native Americans, Pacific Islanders, Asian Americans, Armenians, LatinX, women, youth, disabled, orphans, infants, elderly, seniors, retirees, terminally ill, displaced refugees, immigrants, homeless, medical professionals, firefighters, farmers, shepherds, Sappho's sisters, socialists, illegally detained human beings
+
+Psalms 68:5-6 NLT
+
+Father to the fatherless, defender of widows— this is God, whose dwelling is holy. God places the lonely in families; he sets the prisoners free and gives them joy.. 
+
+Psalm 146:9 (CEB) The LORD: who protects immigrants, who helps orphans and widows, but who makes the way of the wicked twist and turn!
+
+
+
+
 
 
 ![](https://github.com/kevin11h/Andrew-Yang2020/blob/master/qrcode.png?raw=true)
