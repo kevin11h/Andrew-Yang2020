@@ -1256,3 +1256,5 @@ Psalm 146:9 (CEB) The LORD: who protects immigrants, who helps orphans and widow
 
 
 
+
+![](https://camo.githubusercontent.com/9ce11200840bc71307a3236a0b1f05d5c037e13f/68747470733a2f2f7062732e7477696d672e636f6d2f6d656469612f44304e4748515858634141325575342e6a7067)
