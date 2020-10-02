@@ -1260,4 +1260,9 @@ Psalm 146:9 (CEB) The LORD: who protects immigrants, who helps orphans and widow
 Wisdom is needed to win this war. A universal crisis cries out for a heroic Universal Basic Income solution! May enlightenment of UBI's word be your sword of justice that slays the serpent of selfishness and the staff of abundance which vanquishes the sting of scarcity forever in victory. May awareness of Medicare For All be your shield of mercy and helmet of honor which holds the waters of wellness and brings healing to the body. May consciousness of Human Capitalism be your breastplate of righteousness to create a new currency of courageous compassion, and a new heart of entrepreneurial empathy. May the force of MATH be with us as we Make America Think Harder, regarding humankind's role and place in shepherding Heaven's Kingdom above all nations of the earth.
 
 
+Abundantly clear. It is time to shift our thinking and recognize that we can design a system that works for everyone.
+‍
+Join us as we take to the streets to demand our leadership adopt and pass a Universal Basic Income as a means to a healthier, more innovative, and just society. We must create an income floor on top of which each member of our society can grow and thrive, and in turn ensure our local and national economies can thrive. We owe us!
+
+
 ![](https://camo.githubusercontent.com/9ce11200840bc71307a3236a0b1f05d5c037e13f/68747470733a2f2f7062732e7477696d672e636f6d2f6d656469612f44304e4748515858634141325575342e6a7067)
