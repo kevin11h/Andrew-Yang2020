@@ -2,7 +2,7 @@
 # AMAZON COSTS CALCULATOR
 # COUNT THE COSTS LUKE 14
 ![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/equation-formula-for-KDP-royalty.png)
-
+# Coinage https://www.slideshare.net/LindaJulie/word-forming-proccess-coinage
 # Substance ThicknessxGirthxDensity
 `0.002347" x 80`
 
