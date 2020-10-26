@@ -38,6 +38,32 @@ https://www.gotquestions.org/count-the-cost.html
 
 ![](https://media.swncdn.com/cms/IB/Your-Daily-Verse/72851-philippians-1-6-2.800w.tn.png)
 
+> Andrew Yang wants YOU, your family and every household in America to have $1,000 per month! No strings attached.
+
+Learn Why Freedom Dividend Helps You?
+
+1. "Andrew would implement the Freedom Dividend, a universal basic income of $1,000/month, $12,000 a year, for every American adult over the age of 18"
+
+Discover Medicare For All
+
+2. "Fundamentally, we need to have a more productive conversation about healthcare in America. It’s time to take a step back from enrollment mechanisms and creative accounting to focus on lowering costs and improving quality"
+Like control cost of prescription drugs, invest in innovative technology, change incentive structure for providers, shift focus to more stages of care, recreate comprehensive care for the 21st century to include good aspects of wellbeing
+
+Explore Human-Centered Capitalism!
+
+3. "We need to move to a new form of capitalism – Human Capitalism – that’s geared towards maximizing human well-being and fulfillment."
+1st rule of the new economy is Humans are more important than money: Make the market serve us!
+
+Share the word of encouragement and hope this holiday season, to heal our nation, with this book to a friend as a gift.
+
+Note: *Net portions of proceeds from your purchase of this product go to Andrew Yang related nationwide non-profit organizations, active relief delivery-recovery efforts, and future ventures.
+
+Dear buyers, thank you for your surge of support.
+
+Political Science / US History / Civic Literacy $17.99 US  $24.13 CA  ISBN: 978-0-578-74497-1
+
+For more information about our policy platform, please visit us at https://www.yang2020.com/policies/
+
 ## ERRORS
 ### COVER SIZE is 13.815x9.860 
 #> Your expected cover size is 13.815x9.860 but the submitted file size is 8.500x11.000. Learn how to fix common cover issues.
