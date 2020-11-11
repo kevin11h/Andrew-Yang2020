@@ -1,4 +1,4 @@
-# AUTOMATED PROOFREADER + GRAMMER CHECKER TOOL  APP
+# AUTOMATED PROOFREADER + GRAMMER CHECKER TOOL  APP https://github.com/kevin11h/Automated-Amazon-TwitterBot-Affiliate-Links-Direct-Message/blob/main/README.md
 # AMAZON COSTS CALCULATOR
 # COUNT THE COSTS LUKE 14
 ![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/equation-formula-for-KDP-royalty.png)
