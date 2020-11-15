@@ -1,6 +1,8 @@
 # AUTOMATED PROOFREADER + GRAMMER CHECKER TOOL  APP https://github.com/kevin11h/Automated-Amazon-TwitterBot-Affiliate-Links-Direct-Message/blob/main/README.md
 # AMAZON COSTS CALCULATOR
 # COUNT THE COSTS LUKE 14
+https://frontpagemetrics.com/r/YangForPresidentHQ
+u/yang2020booksclub
 ![](https://raw.githubusercontent.com/kevin11h/Andrew-Yang2020/master/equation-formula-for-KDP-royalty.png)
 # Coinage https://www.slideshare.net/LindaJulie/word-forming-proccess-coinage https://medium.com/@broadlanguage/language-is-power-the-currency-of-words-in-the-fight-for-equality-468711ccfdd0 https://www.thenation.com/article/archive/linguistic-currency/ https://www.youtube.com/watch?v=LLlfgu3tVGM
 # Substance ThicknessxGirthxDensity
